@@ -63,6 +63,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
 
+-  [**Altena**](https://i.imgur.com/kYYhwnd.jpg) - AgentEris
+
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
      -  [**2**](https://i.imgur.com/0Upb1B5.png) - AnkouDusk
@@ -186,6 +188,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/bVn6DR0.jpg) - jagoslav
 
       -  [**7**](https://i.imgur.com/AQR5tif.jpg) - RiskehVIII
+      
+      -  [**8**](https://i.imgur.com/qIrK6mF.jpg) - AgentEris
 
 -  [**Astram**](https://i.imgur.com/vaEQ75p.jpg) - TiltControls
 
@@ -2306,6 +2310,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**25**](https://i.imgur.com/1j46tbZ.png) - Phenollam
 
       -  [**26**](https://i.imgur.com/1pRmSjS.jpg) - SharpBFlat
+      
+      -  [**27**](https://cdn.discordapp.com/attachments/450029733942525952/697474132534886450/Screenshot_20200408-165037.png) - L0RDR0B
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
@@ -4733,7 +4739,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Maribelle**](https://i.imgur.com/tNJ0PaU.jpg) - MDonkay
 
-      -  [**2**](https://cdn.discordapp.com/attachments/347761219777724417/676541827008168047/Screenshot_20200210-213307.png) - L0RDR0B
+      -  [**2**](https://i.imgur.com/3QG9W2H.png) - L0RDR0B
 
 -  [**Marisa**](https://i.redd.it/ejl8gujbzqp21.png) - Kuraran
 
@@ -5328,6 +5334,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/hvWvCRu.jpg) - Fusion_Fear
 
       -  [**8**](https://i.imgur.com/CZkN5wk.png) - OminousGray
+      
+      -  [**9**](https://cdn.discordapp.com/attachments/347761219777724417/699608123052130304/Screenshot_20200414-140327.png) - L0RDR0B
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
 
