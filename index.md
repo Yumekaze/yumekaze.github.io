@@ -1940,6 +1940,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/sZEBV7o.jpg) - Belligero_
 
       -  [**4**](https://i.imgur.com/QaqO7YC.png) - Estebest
+      
+      -  [**5**](https://i.imgur.com/qgvF4HZ.png) - SuperSnivMatt
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
@@ -2056,6 +2058,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/58JESrp_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
 -  [**Eir (New Year's)**](https://scontent-waw1-1.xx.fbcdn.net/v/t1.15752-9/s1080x2048/92186699_2943833139176431_447169351791935488_n.jpg?_nc_cat=103&_nc_sid=b96e70&_nc_ohc=jelqMSJMdHIAX_OfklQ&_nc_ht=scontent-waw1-1.xx&_nc_tp=7&oh=7ddb5f929718af90b5a3f02391413760&oe=5EB0B059) - Eleseia
+
+      -  [**2**](https://i.imgur.com/0eL2rAp.png) - SuperSnivMatt
 
 -  [**Eirika**](https://i.imgur.com/9RtFzvs.png) - WeeboSupremo
 
@@ -3598,6 +3602,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/jRE9IMI.jpg) - NephsDeliciousLegs
 
       -  [**15**](https://i.imgur.com/MHaOWpd.jpg) - MisogID
+      
+      -  [**16**](https://i.imgur.com/b7turwx.jpg) - Pyrozendot
 
 -  [**Julia (Legendary)**](https://i.imgur.com/D5k0aBk.png) - ihsafeway
 
@@ -4245,7 +4251,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**27**](https://i.imgur.com/3UWK80I.jpg) - XxTaeYeonxX
 
-      -  [**28**](https://i.imgur.com/iJvmtEs.jpg) - Pyrozendot
+      -  [**28**](https://i.imgur.com/ACTzufq.jpg) - Pyrozendot
 
       -  [**29**](https://i.imgur.com/gPjLZxJ.jpg) - xSuperKamiGuru
 
@@ -5022,6 +5028,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/Pev3P5c.jpg) - Pep794
 
       -  [**9**](https://i.imgur.com/iCVDCLV.jpg) - StormAurora
+      
+      -  [**10**](https://i.imgur.com/MPZarpL.png) - SuperSnivMatt
 
 -  [**Mia**](https://i.imgur.com/K7JTwtV.jpg) - Lonignus
 
@@ -6690,6 +6698,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/wyudZuS.png) - UpsideDownTofu
 
       -  [**3**](https://imgur.com/a/m9wOXa0) - GeorgeRivera777
+      
+      -  [**4**](https://i.imgur.com/k0JDPjN.png) - SuperSnivMatt
 
 -  [**Roy**](http://i.imgur.com/pF2ulgO.png) - exxit5408
 
