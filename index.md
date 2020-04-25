@@ -456,6 +456,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/zeU5gNU.jpg) - Dracomaster3
 
       -  [**8**](https://i.imgur.com/SCkBa0b.jpg) - Elyctrokaze
+      
+      -  [**9**](https://i.imgur.com/R3eFNMm.png) - Tollomer
 
 -  [**Berkut (Darkness Within)**](https://imgur.com/a/nRKdqnw) - IAintCreativeThough
 
@@ -1634,6 +1636,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**47**](https://i.imgur.com/B1Ljc9q.jpg) - kaeporo
 
       -  [**48**](https://i.imgur.com/s0MLyzX.png) - Bio_liquid0
+      
+      -  [**49**](https://i.imgur.com/OGlCFy9.png) - Tollomer
 
 -  [**Corrin (Summer)**](https://imgur.com/gallery/QBoJc) - Ross2552
 
@@ -1766,6 +1770,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/fmQMRPL.jpg) - Skyliner14
 
       -  [**6**](https://cdn.discordapp.com/attachments/345470968929452033/671703846216531978/Screenshot_2020-01-28-20-09-43-204_com.nintendo.zaba.jpg) - recarmloss
+      
+      -  [**7**](https://i.imgur.com/zwtJWt1.png) - Tollomer
 
 -  [**Death Knight**](https://i.imgur.com/mxu3FiU.png) - EchoCrescent
 
@@ -2766,6 +2772,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://imgur.com/R8j7k4E) - AbyssiHu
 
       -  [**14**](https://i.imgur.com/SBYumIM.png) - LaiLiPing
+      
+      -  [**15**](https://i.imgur.com/yLjiuY0.png) - Tollomer
 
 -  [**Fjorm (New Years)**](https://imgur.com/a/WF4Qbld) - Teh2chao2
 
@@ -3492,6 +3500,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Jagen**](https://i.imgur.com/WFSWUOU.jpg) - Makaioshin
 
       -  [**2**](https://preview.redd.it/sjul9439v5u31.png?width=431&auto=webp&s=b7582a9bb5b198382b1db4432ad67d2690e02d33) - Owain4Life
+      
+      -  [**3**](https://i.imgur.com/Gc2zRhM.png) - Tollomer
 
 -  [**Jakob**](https://i.imgur.com/Fdm78r9.jpg) - grunedesu 
 
@@ -4271,6 +4281,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/YUkCZoZ.jpg) - BlackjackLeggo
 
+-  [**Lilith**](https://i.imgur.com/EvVD4yr.jpg) - Rabbytt
+
 -  [**Linde**](https://i.imgur.com/YIc1YuS.png) - equiNine
 
       -  [**2**](https://i.imgur.com/cA0SqSC.png) - exxit5408
@@ -4286,8 +4298,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/DqHhoVd.jpg) - FearDubh
 
       -  [**8**](https://i.imgur.com/NG48oD9.jpg) - MetaTriforce
-
--  [**Lilith**](https://i.imgur.com/EvVD4yr.jpg) - Rabbytt
+      
+      -  [**9**](https://i.imgur.com/wyKMPRw.png) - Tollomer
 
 -  [**Linde (Summer)**](https://i.imgur.com/b2PWv5f.jpg) - dirtysmall
 
@@ -5162,6 +5174,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/TvbdmBS.png) - Squildo
 
       -  [**5**](https://i.imgur.com/4B6ihcc.jpg) - darkmages4lyfe
+      
+      -  [**6**](https://i.imgur.com/b2wlN6W.png) - SuperSnivMatt
+      
+      -  [**7**](https://i.imgur.com/8e6ZdSA.png) - Tollomer
 
 -  [**Morgan (F)**](https://i.imgur.com/9NYwe1p.png) - Jazzswipe
 
@@ -7048,6 +7064,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**19**](https://i.imgur.com/ZIps6R8.png) - El_Fonz0
 
       -  [**20**](https://i.imgur.com/3HbBAO9.jpg) - CrimsonPaintWolf
+      
+      -  [**21**](https://i.imgur.com/OdcLCpD.png) - Tollomer
 
 -  [**Selkie**](https://cdn.discordapp.com/attachments/544239046172344322/548343494125551646/Screenshot_2019-02-21-22-29-48.png) - AureusVulpes292
 
