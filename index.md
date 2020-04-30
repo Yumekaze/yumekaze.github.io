@@ -1078,6 +1078,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/lazgCTf.jpg) - jagoslav
 
       -  [**11**](https://i.imgur.com/W7n47N3.png) - Fehinaction
+      
+-  [**Ced**](https://i.imgur.com/aacelga.png) - Sidoking
 
 -  [**Celica**](https://i.imgur.com/EUzpvWF.png) - exxit5408
 
