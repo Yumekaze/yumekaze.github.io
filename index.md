@@ -427,7 +427,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/ryUjhLz.jpg) - deemdadim
 
-      -  [**6**](https://i.imgur.com/vxHNZ0k.png) - Excellus
+      -  [**6**](https://i.imgur.com/23hPzYy.png) - Excellus
 
       -  [**7**](https://i.imgur.com/eNNxnLi.jpg) - bowserboy129
 
@@ -752,6 +752,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/oe3zi1R.png) - Aromantic_Benzene
 
       -  [**5**](https://i.imgur.com/wKuFuVr.png) - BobbyYukitsuki
+      
+      -  [**6**](https://i.imgur.com/coMFCvM.png) - Excellus
 
 -  [**Caineghis**](https://i.imgur.com/WLWA3gO.png) - Squildo
 
@@ -881,7 +883,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/HxEeMKK.png) - n_kaze_
 
-      -  [**8**](https://i.imgur.com/p0u7IcP.jpg) - RestlessRoman
+      -  [**8**](https://i.imgur.com/Ra2mj1g.jpg) - RestlessRoman
 
       -  [**9**](https://i.imgur.com/hXNNb9o.jpg) - FearDubh
 
@@ -1794,6 +1796,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/qhMASlL.jpg) - Bnstates
       
       -  [**4**](https://i.imgur.com/olFWX9q.jpg) - Neioo__
+      
+      -  [**5**](https://i.imgur.com/o6hWeO3.png) - Excellus
 
 -  [**Deirdre**](https://i.imgur.com/90YFzp1.png) - Exalgar
 
@@ -1966,6 +1970,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/qgvF4HZ.png) - SuperSnivMatt
       
 -  [**Edelgard (Legendary)**](https://cdn.discordapp.com/attachments/345470672245489675/705486672594337892/Screenshot_2020-05-01-01-31-37-116_com.nintendo.zaba.jpg) - recarmloss
+
+      - [**2**](https://i.imgur.com/WFlLxM4.jpg) - iamdarthyoshi
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
@@ -4310,6 +4316,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
       -  [**2**](https://i.imgur.com/YUkCZoZ.jpg) - BlackjackLeggo
+      
+      -  [**3**](https://i.imgur.com/BjGi2Qm.png) - Excellus
 
 -  [**Lilith**](https://i.imgur.com/EvVD4yr.jpg) - Rabbytt
 
@@ -5002,6 +5010,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/WJ0840E.jpg) - TSmasher1000
 
       -  [**30**](https://i.imgur.com/EQEylUj.jpg) - SharpBFlat
+      
+      -  [**31**](https://i.imgur.com/wHSeaYd.png) - Noxa_4
 
 -  [**Marth (Groom)**](https://i.imgur.com/1xq71pL.jpg) - vectorgram353
 
@@ -5982,6 +5992,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/pdz6IYX.jpg) - BermudaSwampus
 
       -  [**5**](https://i.imgur.com/nk3gYgJ.png) - Lucamuscleman
+      
+      -  [**6**](https://i.imgur.com/z8EfyO0.png) - Excellus
 
 -  [**Olivia**](https://i.imgur.com/6yu9TRx.png) - FordFB67
 
@@ -6496,6 +6508,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/mfYee2S.jpg) - newlyrottenquiche
 
       -  [**3**](https://i.imgur.com/3i6EGHN.png) - Eronigig
+      
+-  [**Rinkah**](https://i.imgur.com/59ln2TO.png) - Noxa_4
 
 -  [**Robin (Summer)**](https://i.imgur.com/qsD464y.jpg) - Razorshadow
 
@@ -6627,7 +6641,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/tjNvTgi.png) - sorry97
 
-      -  [**27**](https://i.imgur.com/oN20Sap.jpg) - RestlessRoman
+      -  [**27**](https://i.imgur.com/m6zfO7L.jpg) - RestlessRoman
 
       -  [**28**](https://i.imgur.com/bDPzwUB.jpg) - myopicfirework
 
@@ -8140,6 +8154,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/r31PsZ4.png) - Navaldeus
 
       -  [**29**](https://i.imgur.com/7pNoCDD.jpg) - SoleilMain
+      
+      -  [**30**](https://i.imgur.com/JXrnF01.png) - Nova_4
 
 -  [**Tharja (Winter)**](https://i.imgur.com/q44b8y5.png) - Stratigizer
 
