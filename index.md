@@ -8587,7 +8587,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/QkGQG2g.png) - Ganadote
       
-      -  [**3**](https://i.imgur.com/CmiEtck.jpg) - Sonicwisp21
+      -  [**3**](https://i.imgur.com/l9GFpEP.jpg) - Sonicwisp21
 
 -  [**Valbar**](https://i.imgur.com/OapvGnc.jpg) - MetaTriforce
 
