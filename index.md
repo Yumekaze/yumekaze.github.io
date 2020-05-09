@@ -446,6 +446,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/6zkNTus.jpg) - TemporalAlchemy
 
       -  [**15**](https://i.imgur.com/XCBEMDQ.jpg) -SharpBFlat
+      
+-  [**Bartre (Spring)**](https://i.imgur.com/qR6LJ9a.jpg) - TiltControls
 
 -  [**Berkut**](http://i.imgur.com/1mBnyt8.jpg) - Symphawnics
 
@@ -1658,6 +1660,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**48**](https://i.imgur.com/s0MLyzX.png) - Bio_liquid0
       
       -  [**49**](https://i.imgur.com/OGlCFy9.png) - Tollomer
+      
+      -  [**50**](https://i.imgur.com/DUlLVTn.png) - Odrioll
 
 -  [**Corrin (Summer)**](https://imgur.com/gallery/QBoJc) - Ross2552
 
@@ -2407,7 +2411,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/7EBT9RR.jpg) - Aromantic_Benzene
 
-      -  [**10**](https://i.imgur.com/KuB8hbd.jpg) - FullFrontalAnal
+      -  [**10**](https://i.imgur.com/wxBAWYw.jpg) - FullFrontalAnal
 
       -  [**11**](https://i.imgur.com/Cymn3Ph.jpg) - FearDubh
 
@@ -2824,6 +2828,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Fjorm (Bride)**](https://imgur.com/lboYatj) - AbyssiHu
 
       -  [**2**](https://imgur.com/gallery/aM7bsHI) - xero245
+      
+-  [**Flame Emperor**](https://i.imgur.com/wFJrC1Z.jpg) - KujoQtaro
 
 -  [**Flora**](https://i.imgur.com/sdzuvdH.png) - EpicSquids
 
@@ -3876,6 +3882,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/1TdHF2y.png) - go4ino
 
       -  [**15**](https://i.imgur.com/HFFEPOS.jpg) - Pronche
+      
+      -  [**16**](https://i.imgur.com/3gDl9aU.png) - Odrioll
 
 -  [**Keaton**](https://i.imgur.com/xUTq09T.png) - Kaleochu
 
@@ -5045,9 +5053,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Marth (Young)**](https://i.imgur.com/2g4MXEd.png) - Taichikins
 
-      - [**2**](https://i.imgur.com/UFJ3kpE.jpg) - InfiniteLoop0
+      -  [**2**](https://i.imgur.com/UFJ3kpE.jpg) - InfiniteLoop0
       
-      - [**3**](https://preview.redd.it/ittptpqh26w41.jpg?width=720&format=pjpg&auto=webp&s=1083509e8d1d0374d221e16430be680fb9437877) - TheFerydra
+      -  [**3**](https://preview.redd.it/ittptpqh26w41.jpg?width=720&format=pjpg&auto=webp&s=1083509e8d1d0374d221e16430be680fb9437877) - TheFerydra
+      
+      -  [**4**](https://i.imgur.com/jmwEGXy.jpg) - ShittyDeviantArtOCs 
 
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
@@ -5214,6 +5224,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/UiU68yC.jpg) - BlackjackLeggo
 
       -  [**8**](https://i.redd.it/swnrxguoqrt31.png) - Xarexes
+      
+      -  [**9**](https://i.imgur.com/8K7pAo9.jpg) - FullFrontalAnal
 
 -  [**Mikoto**](https://i.imgur.com/sFuk8pu.png) - n_kaze_
 
@@ -6012,6 +6024,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ogma**](http://i.imgur.com/s75eVw2.png) - exxit5408
 
       -  [**2**](https://imgur.com/a/U9Jq7oe) - VeldinNtG
+      
+      -  [**3**](https://i.imgur.com/BtGiq8B.jpg) - FullFrontalAnal
 
 -  [**Oliver**](https://i.imgur.com/4fIlszV.jpg) - Pumplard
 
@@ -6534,6 +6548,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/L5CsQiI.jpg) - YuvonGrohiik
       
       -  [**19**](https://i.imgur.com/Aa2BXzd.png) - Newt921
+      
+      -  [**20**](https://i.imgur.com/7hXIbYX.jpg) - FullFrontalAnal
 
 -  [**Rhajat**](https://i.imgur.com/aUj9hyx.png) - Lachrymosity
 
@@ -6766,6 +6782,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/QMFdODv.jpg) - BlackjackLeggo
 
       -  [**23**](https://i.imgur.com/KxC5LUB.jpg) - Nasch-3
+      
+      -  [**24**](https://i.imgur.com/xHQyLdQ.jpg) - ShittyDeviantArtOCs
 
 -  [**Robin (F Fallen Hero)**](https://i.imgur.com/AsZInT3.jpg) - Kami-San
 
