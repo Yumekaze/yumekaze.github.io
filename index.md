@@ -1689,7 +1689,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/ySulQhX.jpg) - Lesber
 
-      -  [**4**](https://i.imgur.com/eueq640.jpg) - Rabbytt
+      -  [**4**](https://i.imgur.com/Ljb8SlX.jpg) - Rabbytt
 
 -  [**Corrin (Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
 
@@ -1864,6 +1864,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/4PtNhDF.jpg) - xSuperKamiGuru
 
       -  [**8**](https://i.imgur.com/u3CPzUX.png) - TerdMuncher
+      
+      -  [**9**](https://i.imgur.com/jxapPSt.png) - stephenthatfoste
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
