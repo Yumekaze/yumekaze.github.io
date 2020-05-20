@@ -1534,6 +1534,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**42**](https://i.imgur.com/v63FY7p.jpg) - jagoslav
       
       -  [**43**](https://i.imgur.com/Kjv7rEG.png) - takolukanow
+      
+      -  [**44**](https://i.imgur.com/fkz6wQ4.png) - djb2spirit
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -3148,6 +3150,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**23**](https://i.imgur.com/DREzgbi.png) - Pit_Solitaryh
 
       -  [**24**](https://i.imgur.com/1kyX2R9.jpg) - JsKingBoo
+      
+      -  [**25**](https://i.imgur.com/6qhQO6p.png) - djb2spirit
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -4342,6 +4346,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**35**](https://i.imgur.com/We9gOeg.png) - TerdMuncher
       
       -  [**36**](https://i.imgur.com/zaDf9ib.png) - Newt921
+      
+      -  [**37**](https://i.imgur.com/dO1DjIm.png) - djb2spirit
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -4893,7 +4899,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://gyazo.com/798eda643f274aaf8ad8685eb759f2ec) - minatoapologist
       
-      -  [**18**](https://imgur.com/ZDeD8b7) - djb2spirit
+      -  [**18**](https://i.imgur.com/xIVjm1S.png) - djb2spirit
      
       -  [**19**](https://i.imgur.com/G3PyfHU.png) - minno
 
@@ -5048,6 +5054,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Marth (Groom)**](https://i.imgur.com/1xq71pL.jpg) - vectorgram353
 
       -  [**2**](https://i.imgur.com/dAYQwK1.jpg) - PegaponyPrince
+      
+      -  [**3**](https://i.imgur.com/WcV5PDj.png) - djb2spirit
 
 -  [**Marth + Elice (Winter)**](https://i.imgur.com/Lrk33dg.png) - NeonS4
 
@@ -5059,7 +5067,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://preview.redd.it/ittptpqh26w41.jpg?width=720&format=pjpg&auto=webp&s=1083509e8d1d0374d221e16430be680fb9437877) - TheFerydra
       
-      -  [**4**](https://i.imgur.com/jmwEGXy.jpg) - ShittyDeviantArtOCs 
+      -  [**4**](https://i.imgur.com/jmwEGXy.jpg) - ShittyDeviantArtOCs
+      
+      -  [**5**](https://i.imgur.com/2mppiZu.png) - djb2spirit
 
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
