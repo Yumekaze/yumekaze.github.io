@@ -1693,7 +1693,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/Ljb8SlX.jpg) - Rabbytt
 
--  [**Corrin (Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
+-  [**Corrin F (Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/G0Ym9ED.png) - FryingIceCream
 
@@ -1786,6 +1786,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/zlzA7hI.png) - s07195
       
       -  [**9**](https://preview.redd.it/p7m2189t9lt41.jpg?width=720&format=pjpg&auto=webp&s=a3967483f16fe1bb9b4b5b875769c392b43bc454) - TheFerydra
+      
+-  [**Corrin M (Dark Burdens)**](https://i.imgur.com/5ElhE7i.jpg) - Rabbytt
 
 -  [**Cynthia**](https://media.discordapp.net/attachments/398619600603971594/625833266426937364/image0.png) - PokemonCrazy
 
@@ -5990,6 +5992,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**15**](https://i.imgur.com/mplx5Hr.png) - lunchbane
 
       -  [**16**](https://i.imgur.com/gynPWvs.jpg) - FearDubh
+      
+-  [**Oboro (Bridal)**](https://cdn.discordapp.com/attachments/294552858756382731/713210844661415977/plusten.jpg) - TomatoFlakes
 
 -  [**Odin**](https://i.imgur.com/y8Gdrjh_d.jpg?maxwidth=640&shape=thumb&fidelity=low) - DaddiOdin
 
@@ -6309,6 +6313,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
 
+-  [**Rafiel**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
+
 -  [**Raigh**](https://i.imgur.com/C7YlaQe.jpg) - JdiJwa 
 
       -  [**2**](https://i.imgur.com/ryD6y6Y.jpg) - Silesse
@@ -6525,7 +6531,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Reyson**](https://i.imgur.com/wuDHYDQ.jpg) - Faithhandler
 
-      -  [**2**](https://i.imgur.com/BQFbF8U.png) - Lathel
+      -  [**2**](https://i.imgur.com/CvEVmqQ.jpg) - Lathel
 
       -  [**3**](https://cdn.discordapp.com/attachments/548002260643479567/551137112548835356/Screenshot_2019-03-02-07-18-39.png) - minatoapologist
 
@@ -8284,6 +8290,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/WuGu83c.png) - Fullmetal_Dude
 
       -  [**6**](https://i.imgur.com/did6Pe3.jpg) - MetaTriforce
+      
+      -  [**7**](https://i.imgur.com/FvcW4uk.png) - Lathel
 				
 -  [**Tiki (Adult)**](https://i.imgur.com/REcxkUz.png) - exxit5408
 
