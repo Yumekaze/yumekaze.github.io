@@ -206,6 +206,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/0yy5oH4.jpg)  - Geomint
 
       -  [**6**](https://i.imgur.com/xh1xhPM.jpg) - InfiniteLoop0
+      
+      -  [**7**](https://cdn.discordapp.com/attachments/673535121797939203/713743086135541760/image0.png) - KaiDoesStuff
 
 -  [**Athena**](http://i.imgur.com/6Tww9cB.png) - exxit5408
 
@@ -7614,6 +7616,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/o1mb6vw.png) - Bored5437
 
 -  [**Sirius**](https://i.imgur.com/yrwIbE0.jpg) - Shuyomi
+
+      -  [**2**](https://i.imgur.com/yQCRXs6.jpg) - Pf9877
 
 -  [**Soleil**](https://i.imgur.com/nwvlX8D.png) - exxit5408
 
