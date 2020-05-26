@@ -6839,7 +6839,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/7G4hE9K.jpg) - JsKingBoo
 
-      -  [**18**](https://i.imgur.com/CP7zmvU.jpg) - 
+      -  [**18**](https://i.imgur.com/CP7zmvU.jpg) - goldtreebark
 
 -  [**Roderick**](https://i.imgur.com/6YL47MQ.jpg) - oPlaiD 
 
