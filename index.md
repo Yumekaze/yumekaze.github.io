@@ -6856,6 +6856,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.redd.it/ofsqga0s01s21.jpg) - MrBigPotato
 
       -  [**8**](https://i.imgur.com/LTdSpAA.jpg) - JdiJwa
+      
+      -  [**9**](https://i.imgur.com/hhJtsHR.png) - go4ino
 
 -  [**Rolf**](https://i.imgur.com/LIs7VDc.jpg) - damagereducer
 
@@ -6944,6 +6946,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/eiJWZgY.jpg) - jaesuk97
 
       -  [**3**](https://i.redd.it/wvu0z0a10j441.jpg) - PM_ME_EDGEWORTH_NUDE
+      
+      -  [**4**](https://i.imgur.com/Kk5VONY.png) - go4ino
 
 -  [**Roy (Love Abounds)**](https://i.imgur.com/SUDUrJU.png) - Jtarts
 
