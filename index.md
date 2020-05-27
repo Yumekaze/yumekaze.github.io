@@ -5224,6 +5224,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/o80ubXr.jpg) - surprisecenter
 
       -  [**6**](https://i.imgur.com/Yq1Vkv2.jpg) - Helswath
+      
+-  [**Micaiah + Sothe (Bridal)**](https://i.imgur.com/jbHj6wn.png) - 98Ms_
 
 -  [**Michalis**](https://cdn.discordapp.com/attachments/431207047715880961/539584579154083850/Fire_Emblem_Heroes_2019-01-28-18-16-16.png) - ptolemy77
 
