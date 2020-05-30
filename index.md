@@ -60,6 +60,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**8**](https://i.imgur.com/oWA0X8k.jpg) - MetaTriforce
 
      -  [**9**](https://i.imgur.com/wIN9X2Y.png) - LaiLiPing
+     
+     -  [**10**](https://i.imgur.com/WQh0sWh.jpg) - TiltControls
 
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
 
@@ -3106,6 +3108,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/hoZ9MUZ.jpg) - Grade-AMasterpiece
       
       -  [**4**](https://i.imgur.com/OF7gvRU.png) - Newt921
+      
+      -  [**5**](https://i.imgur.com/IpNHiiV.jpg) - dyeitblonde
 
 -  [**Hana**](https://i.imgur.com/jXgiidV.png) - DNewWin 
 
@@ -5267,9 +5271,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/aOv7R34.jpg) - Shuyomi
 
--  [**Mist**](https://imgur.com/vGmC14r) - YorozuyaTrio
+-  [**Mist**](https://i.imgur.com/lkKDkfF.png) - YorozuyaTrio
 
--  [**Mist (Greil's Devoted)**](https://i.imgur.com/BxQClCI.jpg) - YorozuyaTrio
+-  [**Mist (Greil's Devoted)**](https://i.imgur.com/T9chK6n.png) - YorozuyaTrio
 
 -  [**Mordecai**](https://i.imgur.com/mYiJTvs.jpg) - Rabbytt
 
