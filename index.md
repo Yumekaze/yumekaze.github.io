@@ -5270,6 +5270,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/fx4O09t.jpg) - InfiniteLoop0
 
       -  [**10**](https://i.imgur.com/aOv7R34.jpg) - Shuyomi
+      
+-  [**Minerva (Young)**](https://cdn.discordapp.com/attachments/431207047715880961/718304734926340176/Screenshot_20200604-232624_Fire_Emblem_Heroes.jpg) - ptolemy77
 
 -  [**Mist**](https://i.imgur.com/lkKDkfF.png) - YorozuyaTrio
 
