@@ -1993,7 +1993,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Edelgard (Legendary)**](https://cdn.discordapp.com/attachments/345470672245489675/705486672594337892/Screenshot_2020-05-01-01-31-37-116_com.nintendo.zaba.jpg) - recarmloss
 
-      - [**2**](https://i.imgur.com/WFlLxM4.jpg) - iamdarthyoshi
+      - [**2**](https://i.imgur.com/KlnLqka.jpg) - iamdarthyoshi
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
