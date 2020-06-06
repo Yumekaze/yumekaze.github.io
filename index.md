@@ -2877,6 +2877,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://cdn.discordapp.com/attachments/291701550022393857/667622611282558986/image0.png) - LittleIslander
 
+-  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
+
 -  [**Forsyth**](https://i.imgur.com/piSr24Y.jpg) - MetaTriforce
 
 -  [**Frederick**](https://i.imgur.com/xQaBELv.jpg) - oPlaiD
@@ -4184,6 +4186,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/biXbLJM.png) - SuitandTyrogue1
 
       -  [**8**](https://i.imgur.com/sAYkHIN.jpg) - SoleilMain
+      
+      -  [**9**](https://i.imgur.com/sD6dSGZ.jpg) - Rocketman4570
 
 -  [**Legion**](https://i.imgur.com/iRbPlmn.jpg) - hiimlykos
 
@@ -4504,6 +4508,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/WTzP05N.jpg) - Fusion_Fear
 
       -  [**13**](https://i.imgur.com/8O8VQ5I.jpg) - TSmasher1000
+      
+      -  [**14**](https://i.imgur.com/PV2oHSF.jpg) - Camping_Noob
 
 -  [**Lucina (Spring)**](http://i.imgur.com/5cAJyRN.jpg) - ZephyrRC
 
@@ -4776,6 +4782,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/2kPfDp6.jpg) - TheFinestDoggo
 
       -  [**6**](https://i.imgur.com/ivmfVrQ.png) - Dudebrosonmanguy
+
+-  [**Lyon (Fallen)**](https://i.imgur.com/c3oJSYX.jpg) - Andantina
 
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
 
@@ -8492,6 +8500,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/JIegIwu.jpg) - InfiniteLoop0
 
       -  [**7**](https://i.imgur.com/QLFzO7Q.jpg) - -TheFoolishJester
+      
+      -  [**8**](https://i.imgur.com/BrxGJ6e.jpg) - DuoRogue
 
 -  [**Tiki (Young, Summer)**](https://i.imgur.com/8WUQzah.jpg) - Rabbytt
 
@@ -8636,6 +8646,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/h4AmqIB.png) - Pit_Solitayrh
 
       -  [**3**](https://i.imgur.com/IwZZgcS.jpg) - FearDubh
+      
+-  [**Tsubasa**](https://media.discordapp.net/attachments/304827783492927489/705327172960911420/image0.png?width=356&height=633) - You-han
 
 -  [**Ursula**](https://i.imgur.com/e8PznbY.png) - MasatoManatee
 
