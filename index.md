@@ -33,6 +33,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Alfonse + Sharena (New Year's)**](https://i.imgur.com/iTstpT6.jpg) - Belligero
 
+      -  [**2**](https://i.imgur.com/HjicDyp.jpg) - moshiemochi
+
 -  [**Alm**](http://i.imgur.com/9CMFJHn.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/2AOyNot.jpg) - PM_ME_YOUR_WHALE
@@ -7886,6 +7888,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/BVqpS7R.png) - Squildo
 
       -  [**7**](https://i.imgur.com/i8epH5y.jpg) - october_5
+      
+      -  [**8**](https://i.imgur.com/OTjLBFP.jpg) - ArchLightXRotMG
 
 -  [**Sophia**](https://i.imgur.com/o9YeU5Q.jpg) - Kregar123	
 
@@ -8270,6 +8274,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/boPX3cM.png) - Skybeat8
 
       -  [**7**](https://i.imgur.com/9JuulQb.jpg) - MetaTriforce
+      
+      -  [**8**](https://i.imgur.com/dSQ9Oli.jpg) - moshiemochi
 
 -  [**Takumi (Summer)**](https://i.imgur.com/0LQuC7B.jpg) - Dare_Rio
 
