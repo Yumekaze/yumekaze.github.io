@@ -888,6 +888,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**51**](https://i.imgur.com/ifgGV9q.png) - Bio_liquid0
 
       -  [**52**](https://i.imgur.com/H4k9HEX.png) - TerdMuncher
+      
+      -  [**53**](https://i.imgur.com/zhZxQ9Y.jpg) - TheLeiss
 
 -  [**Camilla (Spring)**](http://i.imgur.com/49zvG0l.jpg) - ZephyrRC 
 
@@ -8772,6 +8774,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/h4AmqIB.png) - Pit_Solitayrh
 
       -  [**3**](https://i.imgur.com/IwZZgcS.jpg) - FearDubh
+      
+-  [**Travant**](https://i.imgur.com/c9TTdfP.jpg) - booleanHipster
       
 -  [**Tsubasa**](https://media.discordapp.net/attachments/304827783492927489/705327172960911420/image0.png?width=356&height=633) - You-han
 
