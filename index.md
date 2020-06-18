@@ -1720,6 +1720,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/ySulQhX.jpg) - Lesber
 
       -  [**4**](https://i.imgur.com/Ljb8SlX.jpg) - Rabbytt
+      
+      -  [**5**](https://i.imgur.com/6Zd6VdR.png) - J_Dubs_93
 
 -  [**Corrin F (Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
 
@@ -4526,6 +4528,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/Hwrffbj.jpg) - Niknik108
 
       -  [**3**](https://i.imgur.com/gQXmxmh.jpg) - Breitey
+      
+      -  [**4**](https://i.imgur.com/c7nSDVQ.png) - J_Dubs_93
 
 -  [**Lon’qu**](https://i.imgur.com/Ma2KORH.jpg) - Gokotsu
 
@@ -4780,6 +4784,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/Iem4y04.png) - Kineth
 
       -  [**7**](https://i.imgur.com/7Jirm0l.png) - Brinzy
+      
+-  [**Lute (Summer)**](https://cdn.discordapp.com/attachments/431207047715880961/723118285305937980/Screenshot_20200618-2013112.png) - Ryzer28
 
 -  [**Lyn**](https://i.imgur.com/eUTeVsu.png) - exxit5408
 
