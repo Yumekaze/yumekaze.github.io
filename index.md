@@ -6435,7 +6435,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
 
--  [**Rafiel**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
+-  [**Rafiel (Bridal)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
+
+      -  [**2**](https://cdn.discordapp.com/attachments/270365878846095360/723433283769204796/Screenshot_20200619-030521.png) - Soireal
 
 -  [**Raigh**](https://i.imgur.com/C7YlaQe.jpg) - JdiJwa 
 
@@ -7248,8 +7250,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/IneMeq6.png) - Blizzardthree
 
       -  [**6**](https://cdn.discordapp.com/attachments/294552858756382731/612043716332355584/Screenshot_20190816-155940_Fire_Emblem_Heroes.jpg) - TomatoFlakes
+      
+-  [**Selena (Sacred Stones) (Summer)**](https://i.imgur.com/LN07W7k.jpg) - Belligero_
 
--  [**Selena**](https://i.imgur.com/gL4Ma2U.png) - DKRF
+-  [**Selena (Fates)**](https://i.imgur.com/gL4Ma2U.png) - DKRF
 
       -  [**2**](https://i.imgur.com/eR48kEE.png) - VoltRizer
 
