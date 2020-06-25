@@ -7267,6 +7267,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://cdn.discordapp.com/attachments/294552858756382731/612043716332355584/Screenshot_20190816-155940_Fire_Emblem_Heroes.jpg) - TomatoFlakes
       
+-  [**Say'ri**](https://cdn.discordapp.com/attachments/535672869640994816/725603744481411102/Screenshot_20200624-234457_Fire_Emblem_Heroes.jpg) - 
+      
 -  [**Selena (Sacred Stones) (Summer)**](https://i.imgur.com/LN07W7k.jpg) - Belligero_
 
 -  [**Selena (Fates)**](https://i.imgur.com/gL4Ma2U.png) - DKRF
