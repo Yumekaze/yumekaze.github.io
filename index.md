@@ -296,6 +296,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/hn8nj9D.png) - 0blivionknight
       
       -  [**25**](https://i.imgur.com/1cPHRIy.png) - Fehinaction
+      
+      -  [**26**](https://i.imgur.com/6BzFqXx.png) - The_Anti_Nero
 
 -  [**Ayra**](https://i.imgur.com/HkjaxBE.png) - FoxesGoneWilde
 
@@ -1842,6 +1844,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**27**](https://i.imgur.com/LAlxdP3.jpg) - StormAurora
       
       -  [**28**](https://i.imgur.com/wts4Bol.png) - Gotta-Snatch-Em-All
+      
+      -  [**29**](https://i.imgur.com/FPBhrkO.png) - The_Anti_Nero
 
 -  [**Corrin (M Adrift)**](https://imgur.com/mEtVsxO) - northwind789
 
@@ -2474,6 +2478,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/ioCJ4eS.png) - Newt921
       
       -  [**30**](https://i.imgur.com/vsmlFjm.png) - Rammiloh
+      
+      -  [**31**](https://i.imgur.com/aFjKkP4.png) - The_Anti_Nero
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
@@ -4784,6 +4790,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/KeHoggg.jpg) - TSmasher1000
       
       -  [**10**](https://i.imgur.com/S1lETa6.jpg) - Sharkbait_22
+      
+      -  [**11**](https://i.imgur.com/SMehv4K.png) - The_Anti_Nero
 
 -  [**Lucius**](https://i.imgur.com/mQ5FQZR.jpg) - Gulassa 
 
@@ -6230,6 +6238,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**82**](https://i.imgur.com/HdMPALX.png) - TerdMuncher
       
       -  [**83**](https://i.imgur.com/Dmi3ds2.jpg) - Rabbytt
+      
+      -  [**84**](https://i.imgur.com/3BLX32k.png) - The_Anti_Nero
 
 -  [**Nowi (Halloween)**](https://i.imgur.com/i54tVwr.png) - exxit5408
 
@@ -6830,6 +6840,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**49**](https://i.imgur.com/HwN4GCX.png) - 0blivionknight
       
       -  [**50**](https://i.imgur.com/48Ujl3R.jpg) - GoldenYoshistar1
+      
+      -  [**51**](https://i.imgur.com/7McYxl3.png) - The_Anti_Nero
 
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
@@ -7809,7 +7821,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**33**](https://imgur.com/gallery/X8dcFba) - crunk_juice34
 
-      -  [**34**](https://i.imgur.com/Naz3NlW.jpg) - Metroplex7
+      -  [**34**](https://i.imgur.com/AgSergu.jpg) - Metroplex7
 
       -  [**35**](https://imgur.com/a/tl2qP5V) - deoxys_101993
 
@@ -8852,6 +8864,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**80**](https://i.imgur.com/bkEbsJp.png) - Rammiloh
       
       -  [**81**](https://i.imgur.com/xAlD0ea.jpg) - GoldenYoshistar1
+      
+      -  [**82**](https://i.imgur.com/GDNNfj6.png) - The_Anti_Nero
 
 -  [**Tiki (Adult, Summer)**](https://i.imgur.com/cx9IFyC.jpg) - Kranox7656
 
