@@ -115,7 +115,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Arden**](https://i.redd.it/iqxxmwh326y21.png) - PhiphyL
 
-      -  [**2**](http://imgur.com/a/10MJLDK) - Fehinaction
+      -  [**2**](https://i.imgur.com/oaCxGw4.png) - Fehinaction
 
       -  [**3**](https://i.imgur.com/rlRnQEd.png) - Can47
 
@@ -246,6 +246,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/zqf40xO.jpg) - Eridras
       
       -  [**9**](https://i.imgur.com/0FDOwQX.jpg) - NohrianScumbag
+      
+      -  [**10**](https://i.imgur.com/l5KsNAY.jpg) - Yuvalis
 
 -  [**Aversa**](https://imgur.com/gallery/nlyRDHF) - LucinaTheExalt
 
@@ -414,6 +416,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/nY6fDRB.jpg) - SoleilMain
       
       -  [**12**](https://i.imgur.com/MLSFt5h.jpg) - expaja
+      
+      -  [**13**](https://i.imgur.com/4OeMkNA.jpg) - Patchoru
 
 -  [**Azura (Legendary)**](https://i.imgur.com/0pMZ7Ec.jpg) - ihsafeway
 
@@ -573,7 +577,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Black Knight**](https://imgur.com/D5kOKB5) - RamunePoison
 
-      -  [**2**](https://i.imgur.com/uItylZh.png) - Fehinaction
+      -  [**2**](https://i.imgur.com/M9bPCJV.png) - Fehinaction
 
       -  [**3**](https://imgur.com/DpzSjOR.jpg) - Pep794
 
@@ -686,6 +690,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/eLyYVOR.png) - PagePyralis
 
       -  [**3**](https://i.imgur.com/yrOfsob.jpg) - ThatKoolKidOverThere
+      
+-  [**Byleth (F) + Rhea (Summer)**](https://i.imgur.com/iQtqLu6.png) - ora-nora
 
 -  [**Caeda**](https://i.imgur.com/W5V2TnS.png) - xMarthington
 
@@ -1086,6 +1092,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**34**](https://i.imgur.com/AZhs9UC.png) - Estebest
 
       -  [**35**](https://i.imgur.com/CH3ffqQ.png) - TerdMuncher
+      
+      -  [**36**](https://i.imgur.com/ueU0bBQ.jpg) - Yuvalis
 
 -  [**Catria (Hares at the Fair)**](https://i.imgur.com/x7082oQ.png) - nosefera2
 
@@ -1426,6 +1434,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Chrom (Legendary)**](https://i.imgur.com/ncTmZsN.png) - GtheUniverse
 
       -  [**2**](https://i.imgur.com/Lcg0uO2.jpg) - QwrtyMan213
+      
+      -  [**3**](https://i.imgur.com/d6CveEy.png) - LaiLiPing
 
 -  [**Clair**](http://i.imgur.com/83B4t5N.png) - exxit5408
 
@@ -2506,6 +2516,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/hT9IGu6.jpg) - SharpBFlat
 
       -  [**10**](https://i.imgur.com/QYaKqO4.jpg) - Geomint
+      
+      -  [**11**](https://i.imgur.com/13KbJEV.jpg) - Yuvalis
 
 -  [**Eliwood (Brave)**](https://i.imgur.com/Qa4cEJL.png) - Phenollam
 
@@ -3294,6 +3306,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**25**](https://i.imgur.com/6qhQO6p.png) - djb2spirit
       
       -  [**26**](https://i.imgur.com/vVsbu0Z.jpg) - Dark-C
+      
+      -  [**27**](https://i.imgur.com/m6NwLsq.jpg) - Patchoru
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -3482,6 +3496,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/lEXLnNA.jpg) - Tebacon
 
       -  [**11**](https://i.imgur.com/8FBhlrm.jpg) - thomasawesome55
+      
+-  [**Hinata (Groom)**](https://i.imgur.com/nxbGFbt.png) - takolukanow
+
+      -  [**2**](https://i.redd.it/19h6d6ea46951.jpg) - SiilentCry
 
 -  [**Hinoka**](http://i.imgur.com/azDTyXe.png) - exxit5408
 
@@ -4238,6 +4256,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**38**](https://i.imgur.com/Q7H11yc.jpg) - Skyliner14
       
       -  [**39**](https://i.imgur.com/oKkHJGT.jpg) - darkveeck
+      
+      -  [**40**](https://i.imgur.com/BJtf91i.jpg) - Patchoru
 
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
@@ -4390,6 +4410,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/sD6dSGZ.jpg) - Rocketman4570
       
       -  [**10**](https://i.imgur.com/N4aylBM.png) - MidnightLime
+      
+      -  [**11**](https://i.imgur.com/853lPwv.jpg) - Patchoru
 
 -  [**Legion**](https://i.imgur.com/iRbPlmn.jpg) - hiimlykos
 
@@ -4574,6 +4596,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/dO1DjIm.png) - djb2spirit
       
       -  [**38**](https://i.imgur.com/1TJyc50.jpg) - TyrekGoldenspear
+      
+      -  [**39**](https://i.imgur.com/TLrES7S.jpg) - Patchoru
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -4915,7 +4939,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**35**](https://i.imgur.com/ryMG44M.jpg) - nikyb2
 
-      -  [**36**](https://i.imgur.com/xUug4V2.png) - Fehinaction
+      -  [**36**](https://i.imgur.com/RGkSFWl.png) - Fehinaction
       
       -  [**37**](https://i.imgur.com/72ktwoT.png) - Pu22leKing
 
@@ -5318,6 +5342,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**31**](https://i.imgur.com/wHSeaYd.png) - Noxa_4
       
       -  [**32**](https://i.imgur.com/G1mDvRP.jpg) - NohrianScumbag
+      
+      -  [**33**](https://i.imgur.com/xGsspUB.png) - Fehinaction
 
 -  [**Marth (Groom)**](https://i.imgur.com/1xq71pL.jpg) - vectorgram353
 
@@ -6568,6 +6594,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Peony**](https://i.imgur.com/m29FLaC.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/hoqqIOU.jpg) - Dollyche
+      
+      -  [**3**](https://i.imgur.com/tFJJziG.png) - LaiLiPing
 
 -  [**Perceval**](https://i.imgur.com/umdc1kS.png) - TankyMage
 
@@ -6643,7 +6671,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
 
--  [**Rafiel (Bridal)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
+-  [**Rafiel (Groom)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
 
       -  [**2**](https://cdn.discordapp.com/attachments/270365878846095360/723433283769204796/Screenshot_20200619-030521.png) - Soireal
 
@@ -6766,6 +6794,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/nY4iY0F.jpg) - Geomint
       
       -  [**11**](https://i.imgur.com/TbtBo98.png) - Pit_Solitayrh
+      
+      -  [**12**](https://i.imgur.com/POZGfZi.jpg) - Patchoru
 
 -  [**Reinhardt**](https://i.imgur.com/r1G9nsI.png) - ayoung1996
 
@@ -8154,6 +8184,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**63**](https://i.imgur.com/mecrmVf.png) - TerdMuncher
 
       -  [**64**](https://i.imgur.com/HTsPjwO.jpg) - SoleilMain
+      
+      -  [**65**](https://i.imgur.com/L0J2VWS.jpg) - Patchoru
 
 -  [**Sonya**](https://i.imgur.com/aNmXrYF.png) - FordFB67
 
@@ -8484,6 +8516,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/XQr0rxQ.jpg) - euphemea
 
       -  [**5**](https://i.imgur.com/cGWHefh.jpg) - LaiLiPing
+      
+-  [**Sylvain (Summer)**](https://i.imgur.com/4fcbVHM.png) - kieku1
 
 -  [**Tailtiu**](https://i.imgur.com/8JZ94bf.png) - Teh2chao2
 
@@ -9148,6 +9182,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://cdn.discordapp.com/attachments/294552858756382731/612043714096791582/Screenshot_20190816-155918_Fire_Emblem_Heroes.jpg) - TomatoFlakes
 
       -  [**5**](https://i.imgur.com/9SKYnVq.jpg) - Pronche
+      
+      -  [**6**](https://i.imgur.com/0JsuqSK.jpg) - Patchoru
 
 -  [**Wrys**](https://i.imgur.com/EwpRKbl.png) - athropods 
 
