@@ -693,6 +693,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Byleth (F) + Rhea (Summer)**](https://i.imgur.com/iQtqLu6.png) - ora-nora
 
+      -  [**2**](https://i.imgur.com/VHhqGMy.jpg) - Deathmask97
+
 -  [**Caeda**](https://i.imgur.com/W5V2TnS.png) - xMarthington
 
       -  [**2**](https://imgur.com/gallery/QEG5YL4) - FearDubh
