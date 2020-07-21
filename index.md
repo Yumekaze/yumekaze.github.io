@@ -3160,6 +3160,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/D31x6II.png) - MegaBanettes
 
       -  [**6**](https://i.imgur.com/sBIu8j1.png) - avelata
+      
+      -  [**7**](https://i.imgur.com/BB5EDRQ.jpg) - dyeitblonde
 
 -  [**Greil**](https://cdn.discordapp.com/attachments/548002260643479567/551137108778024992/Screenshot_2019-03-02-07-18-26.png) - minatoapologist
 
@@ -5426,6 +5428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/9iP3lxG.jpg) - Bang-a-Bonk
       
       -  [**15**](https://i.imgur.com/ysdzA5x.png) - Kuina
+      
+      -  [**16**](https://pbs.twimg.com/media/EdZQoz-XgAUY0et?format=png&name=medium) - wat-dha-fak
 
 -  [**Mercedes**](https://i.imgur.com/JI7MdjM.jpg) - Fusion_Fear
 
@@ -6516,6 +6520,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/jILQqaX.png) - 7Azvd
 
       -  [**15**](https://preview.redd.it/uvqhx20rt6h41.jpg?width=373&auto=webp&s=dac58ed6f73a50b7ba383904400f7e3ea2040b92) - Icelerate
+      
+-  [**Osian**](https://i.imgur.com/CLgySKL.png) - Xuanwu7
 
 -  [**Owain**](https://i.imgur.com/huGcecz.png) - AchingBlood0623
 
