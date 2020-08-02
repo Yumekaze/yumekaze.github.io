@@ -3427,6 +3427,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Hector + Lilina (Halloween)**](https://i.imgur.com/0EF13TO.jpg) - yulanan
 
+-  [**Hel**](https://i.redd.it/h5w2vn5td0e51.png) - Joshuaxe7
+
 -  [**Helbindi**](https://i.imgur.com/MH4OmLK.png) - HeavenlySeraph
 
       -  [**2**](https://i.imgur.com/BXhH32W.jpg) - ClickHereToDie
