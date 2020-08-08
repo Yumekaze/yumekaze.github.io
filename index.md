@@ -30,6 +30,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/SDoqSAY.jpg) - RainyDeer
 
       -  [**3**](http://imgur.com/rcic4h8) - Tollomer
+      
+      -  [**4**](https://i.imgur.com/g5P3OEn.png) - WhalesOnStrike
 
 -  [**Alfonse + Sharena (New Year's)**](https://i.imgur.com/iTstpT6.jpg) - Belligero
 
@@ -210,6 +212,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/qIrK6mF.jpg) - AgentEris
       
       -  [**9**](https://i.imgur.com/g2Pf0mu.jpg) - maxdaboss
+      
+-  [**Ashnard**](https://i.imgur.com/pivvvoH.jpg) - Valsyar
 
 -  [**Astram**](https://i.imgur.com/vaEQ75p.jpg) - TiltControls
 
@@ -1662,6 +1666,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**47**](https://i.imgur.com/dyKrw6h.jpg) - GoldenYoshistar1
       
       -  [**48**](https://imgur.com/a/wf9apbE) - SorcererHex
+      
+      -  [**49**](https://i.imgur.com/Z3dc2zv.jpg) - Valsyar
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -2905,6 +2911,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ferdinand**](https://i.imgur.com/uiQiumL.jpg) - TiniestManatee
 
+      -  [**2**](https://i.imgur.com/RV2S5wJ.png) - WhalesOnStrike
+
 -  [**Finn**](https://i.imgur.com/N821g61.jpg) - MegaEspeon
 
       -  [**2**](http://imgur.com/a/Zue9dlk) - deoxys_101993
@@ -4128,6 +4136,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/ygSgaM5.png) - defrostice
 
       -  [**6**](https://cdn.discordapp.com/attachments/449438879351832586/739282371051782264/Screenshot_20200801-174016.png) - NougatFromOrbit
+      
+      -  [**7**](https://i.redd.it/t67pmis5oa641.jpg) - szilard
 
 -  [**Kaze**](https://i.imgur.com/G8JmdVb.jpg) - dotyawning
      
@@ -4171,7 +4181,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/v1QNcYg.png) - citrus363
       
-      -  [**4**](https://i.imgur.com/WQv4Tsb.jpg) - Aromantic_Benzene
+      -  [**4**](https://i.imgur.com/rwHACbN.jpg) - Aromantic_Benzene
 
 -  [**Kiria**](https://i.imgur.com/arLmeWz.jpg) - Belligero_
 
@@ -4501,6 +4511,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Leila**](https://i.imgur.com/JwhYgHd.png) - zoolan
 
+-  [**Lena**](https://i.imgur.com/5gx8HfY.jpg) - Aromantic_Benzene
+
 -  [**Lene**](https://i.imgur.com/eJZEReu.jpg) - Jazzswipe
 
      -  [**2**](https://i.imgur.com/VL4BNaF.png) - Lucille_FE
@@ -4714,6 +4726,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/wN1eXjq.jpg) - sigmawolf87
       
       -  [**6**](https://i.imgur.com/rk9k4Ap.png) - souicune
+      
+      -  [**7**](https://i.imgur.com/ScrsveV.png) - WhalesOnStrike
 
 -  [**Lissa**](https://i.imgur.com/obFFKcU.jpg) - MegaBanettes 
 
@@ -4773,7 +4787,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/c7nSDVQ.png) - J_Dubs_93
 
--  [**Lon’qu**](https://i.imgur.com/Ma2KORH.jpg) - Gokotsu
+-  [**Lon'qu**](https://i.imgur.com/Ma2KORH.jpg) - Gokotsu
 
       -  [**2**](https://cdn.discordapp.com/attachments/273671875367010314/355391227501215764/Screenshot_20170907-173623.png) - Colmx
 
@@ -4800,6 +4814,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/6id59qx.png) - MasterLillyclaw
 
       -  [**14**](https://imgur.com/a/cJQ72Jf) - n_kaze_
+      
+      -  [**15**](https://i.imgur.com/ZZQLpBo.jpg) - kevinandhobbes
 
 -  [**Louise (Bride)**](https://i.imgur.com/bTMnHbm.png) - iMisreadThePost
 
@@ -5981,7 +5997,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Nina**](https://i.imgur.com/NE6ZxAk.jpg) - KorabanVII
 
-      -  [**2**](https://i.imgur.com/Lg2LDpu.png?1) - WhalesOnStrike
+      -  [**2**](https://i.imgur.com/1uRqUYJ.png) - WhalesOnStrike
 
       -  [**3**](https://i.imgur.com/mpZUfPW.jpg) - SobriK
 
@@ -6200,6 +6216,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://pbs.twimg.com/media/DjoqxVBU0AE6B98.jpg) - chuggaafan122
 
       -  [**3**](https://i.imgur.com/deAAC15.png) - Quixilver5
+      
+      -  [**4**](https://i.imgur.com/5h1afn2.png) - WhalesOnStrike
 
 -  [**Norne**](https://i.imgur.com/PCBsbre.jpg) - ShiningSolarSword
 
@@ -6210,6 +6228,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/nRjiwsh.jpg) - VitorMariani
       
       -  [**5**](https://cdn.discordapp.com/attachments/449438879351832586/739282372960190514/Screenshot_20200801-173604.png) - NougatFromOrbit
+      
+      -  [**6**](https://i.imgur.com/Ap7vJY6.jpg) - Valsyar
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
 
@@ -8634,6 +8654,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Sylvain (Summer)**](https://i.imgur.com/4fcbVHM.png) - kieku1
 
       -  [**2**](https://i.imgur.com/cDQoL8J.png) - Taichikins
+      
+      -  [**3**](https://i.imgur.com/80soRj2.jpg) - goldenchocobokitty
 
 -  [**Tailtiu**](https://i.imgur.com/8JZ94bf.png) - Teh2chao2
 
@@ -8728,6 +8750,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/ZtE8z5a.png) - Skybeat8
 
       -  [**5**](https://i.imgur.com/SF0lfnw.jpg) - MetaTriforce
+      
+      -  [**6**](https://i.imgur.com/gx7Dlss.jpg) - goldenchocobokitty
 
 -  [**Takumi (Fallen)**](https://i.imgur.com/caqIYYM.jpg) - Yoshieatsyourpie
 
@@ -9308,6 +9332,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/9SKYnVq.jpg) - Pronche
       
       -  [**6**](https://i.imgur.com/0JsuqSK.jpg) - Patchoru
+      
+      -  [**7**](https://i.imgur.com/JsfjvcL.jpg) - Valsyar
 
 -  [**Wrys**](https://i.imgur.com/EwpRKbl.png) - athropods 
 
