@@ -67,7 +67,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**9**](https://i.imgur.com/wIN9X2Y.png) - LaiLiPing
      
-     -  [**10**](https://i.imgur.com/WQh0sWh.jpg) - TiltControls
+     -  [**10**](https://i.imgur.com/WqOPjzY.jpg) - TiltControls
      
 -  [**Alm (Brave)**](https://i.imgur.com/2Phr77f.png) - 0blivionknight
 
@@ -509,7 +509,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://cdn.discordapp.com/attachments/518217165153894460/582726917795479562/Screenshot_20190527-192630_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
-      -  [**6**](https://i.imgur.com/2W8Mte6.jpg) - FullFrontalAnal
+      -  [**6**](https://i.imgur.com/pZI1OV2.jpg) - FullFrontalAnal
 
       -  [**7**](https://i.imgur.com/zeU5gNU.jpg) - Dracomaster3
 
@@ -846,6 +846,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/Td5eA9n_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
       -  [**5**](https://i.imgur.com/JBcY9Ml.jpg) - MetaTriforce
+      
+      -  [**6**](https://i.imgur.com/8aROFJ2.jpg) - Solbango
 
 -  [**Camilla**](http://i.imgur.com/ypgFWKZ.png) - paulomei
 
@@ -1680,6 +1682,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**48**](https://imgur.com/a/wf9apbE) - SorcererHex
       
       -  [**49**](https://i.imgur.com/Z3dc2zv.jpg) - Valsyar
+      
+      -  [**50**](https://i.imgur.com/WRE5dHc.jpg) - FullFrontalAnal
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -1914,6 +1918,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/FPBhrkO.png) - The_Anti_Nero
       
       -  [**30**](https://i.imgur.com/l5skn2Q.jpg) - cozmofox222
+      
+      -  [**31**](https://i.imgur.com/MHZCly5.jpg) - Solbango
 
 -  [**Corrin (M Adrift)**](https://imgur.com/mEtVsxO) - northwind789
 
@@ -2150,6 +2156,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/UScG5CD.jpg) - TyrekGoldenspear
       
       -  [**4**](https://i.imgur.com/aBer72w.jpg) - NohrianScumbag
+      
+      -  [**5**](https://i.imgur.com/AfFhbYP.jpg) - TiltControls
 
 -  [**Edelgard**](https://i.imgur.com/0khhA0W.jpg) - iamdarthyoshi
 
@@ -2631,6 +2639,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ephraim + Lyon**](https://i.imgur.com/Dag3zsb.jpg) - Belligero_
 
+      -  [**2**](https://i.imgur.com/zgunQhe.jpg) - TiltControls
+
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
       -  [**2**](https://i.imgur.com/joS93j2.png) - exxit5408
@@ -2940,6 +2950,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/lQFbuqx.png) - Geeene
 
       -  [**5**](https://i.imgur.com/HvXSDyt.jpg) - Grade-AMasterpiece
+      
+      -  [**6**](https://i.imgur.com/gvllp1p.jpg) - YuvonGrohiik
 
 -  [**Fiora (Summer)**](https://i.imgur.com/K5gfeGd.jpg) - abracalulu
 
@@ -3719,7 +3731,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/5MNP4wO.jpg) - SARBASSI
 
-      -  [**8**](https://imgur.com/v6MLrMQ) - TiltControls
+      -  [**8**](https://i.imgur.com/QO9Yb9G.jpg) - TiltControls
 
       -  [**9**](https://cdn.discordapp.com/attachments/313517659843198978/501702796723224586/Screenshot_20181016-072707.png) - HeeHokun
 
@@ -4053,7 +4065,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**27**](https://i.imgur.com/LXx2DsS.jpg) - oplaxgoalie2
 
-      -  [**28**](https://i.imgur.com/LdVJk0L.jpg) - FullFrontalAnal
+      -  [**28**](https://i.imgur.com/9PtmGs0.jpg) - FullFrontalAnal
 
       -  [**29**](https://i.imgur.com/OZDEdte.jpg) - thomasawesome55
 
@@ -5908,12 +5920,16 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/TObsszJ.jpg) - YuvonGrohiik
       
       -  [**13**](https://cdn.discordapp.com/attachments/450029733942525952/705161250597896272/Screenshot_20200429-215831.png) - L0RDR0B
+      
+      -  [**14**](https://i.imgur.com/2D8n6oN.jpg) - Lathel
 
 -  [**Naga**](https://i.imgur.com/aEZnF4N.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/dRhop9R.png) - ihsafeway
 
 -  [**Nagi**](https://i.imgur.com/dgXxzCo.jpg) - Rabbytt
+
+     -  [**2**](https://i.imgur.com/9iv6WZr.jpg) - 
 
 -  [**Nah**](https://i.imgur.com/ugHuSwe.jpg) - Rabbytt
 
@@ -6549,7 +6565,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://imgur.com/a/U9Jq7oe) - VeldinNtG
       
-      -  [**3**](https://i.imgur.com/BtGiq8B.jpg) - FullFrontalAnal
+      -  [**3**](https://i.imgur.com/YJAXZXh.jpg) - FullFrontalAnal
 
 -  [**Oliver**](https://i.imgur.com/4fIlszV.jpg) - Pumplard
 
@@ -7074,6 +7090,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**50**](https://i.imgur.com/48Ujl3R.jpg) - GoldenYoshistar1
       
       -  [**51**](https://i.imgur.com/7McYxl3.png) - The_Anti_Nero
+      
+      -  [**52**](https://i.imgur.com/ytrDi5h.jpg) - Swiftwhiskers
 
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
@@ -7134,6 +7152,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/QU05z2X.png) - jaesuk97
 
       -  [**4**](https://cdn.discordapp.com/attachments/379031683632070657/404540591821815808/Screenshot_2018-01-21-01-38-58.png) - MarcoVento
+      
+-  [**Rhys (Summer)**](https://i.imgur.com/lJhxvp6.jpg) - RevolutioFalco
 
 -  [**Rinea**](https://i.imgur.com/1pFoTe8.jpg) - Chuuni-chan
 
@@ -8045,7 +8065,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://i.imgur.com/ipgEWAO.png) - SoupMod
 
-      -  [**17**](https://imgur.com/iFjmEPs) - TiltControls
+      -  [**17**](https://i.imgur.com/Hjps1XY.jpg) - TiltControls
 
       -  [**18**](https://i.imgur.com/6H0RG54_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
@@ -8442,6 +8462,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**19**](https://i.imgur.com/RIJ8cuS.jpg) - theunicorngod
       
       -  [**20**](https://i.imgur.com/6ixAEbC.png) - souicune
+      
+      -  [**21**](https://i.imgur.com/ByZp8k8.jpg) - CptnHandsome
 
 -  [**Soren**](https://i.imgur.com/zw2zk6P.jpg) - star-light-trip
 
@@ -8513,7 +8535,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**35**](https://i.imgur.com/lUlwaSt.png) - Z-tune
 
-      -  [**36**](https://i.imgur.com/L7jm4TZ.jpg) - FullFrontalAnal
+      -  [**36**](https://i.imgur.com/oFOWhFo.jpg) - FullFrontalAnal
 
       -  [**37**](https://i.imgur.com/8oIEYAn.jpg) - Yoshieatsyourpie
 
@@ -8717,7 +8739,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/cGWHefh.jpg) - LaiLiPing
       
--  [**Sylvain (Summer)**](https://i.imgur.com/4fcbVHM.png) - kieku1
+-  [**Sylvain (Summer)**](https://i.imgur.com/Q1qA9uC.jpg) - kieku1
 
       -  [**2**](https://i.imgur.com/cDQoL8J.png) - Taichikins
       
@@ -8964,6 +8986,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/98RPoGZ.jpg) - JdiJwa
       
       -  [**8**](https://i.imgur.com/Etocrdo.png) - TankyMage
+      
+      -  [**9**](https://i.imgur.com/o63Q6mI.jpg) - YuvonGrohiik
 
 -  [**Thrasir**](https://i.imgur.com/mCRNkDz.png) - fjorm_book_ii
 
@@ -8984,6 +9008,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/did6Pe3.jpg) - MetaTriforce
       
       -  [**7**](https://i.imgur.com/FvcW4uk.png) - Lathel
+      
+-  [**Tibarn (Pirate)**](https://i.imgur.com/mwCLec0.jpg) - Lathel
 				
 -  [**Tiki (Adult)**](https://i.imgur.com/REcxkUz.png) - exxit5408
 
