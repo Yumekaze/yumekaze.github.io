@@ -73,7 +73,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
 
--  [**Altena**](https://i.imgur.com/kYYhwnd.jpg) - AgentEris
+-  [**Altena**](https://i.imgur.com/VMiX8Wl.jpg) - AgentEris
 
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
@@ -1562,6 +1562,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/18hmWwF.jpg) - PokemonJaiden
       
       -  [**4**](https://i.imgur.com/nm7RHbt.jpg) - Trickster_Tricks
+      
+-  [**Claude (Brave)**](https://i.imgur.com/CPLlRCt.jpg) - smkqrtz09
 
 -  [**Clive**](https://cdn.discordapp.com/attachments/536758779971239947/577859888395583509/Screenshot_20190514-100814.png) - roy2king
 
@@ -2040,6 +2042,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/u3CPzUX.png) - TerdMuncher
       
       -  [**9**](https://i.imgur.com/jxapPSt.png) - stephenthatfoste
+      
+-  [**Dimitri (Brave)**](https://i.imgur.com/CgmFhyK.png) - Psistriker94
+
+      -  [**2**](https://i.imgur.com/Lqg6uhS.png) - BlackStar3000
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
@@ -2176,6 +2182,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**3**](https://i.imgur.com/wtLW3zl.png) - Govictory
       
       - [**4**](https://i.redd.it/km5ft8ul18w41.jpg) - ImDefNotAnAlien
+      
+-  [**Edelgard (Brave)**](https://i.imgur.com/mqzoy6s.jpg) - The_Anti_Nero
+
+      -  [**2**](https://i.imgur.com/5C4G0Ad.jpg) - AgentEris
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
@@ -3105,7 +3115,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Forsyth**](https://i.imgur.com/piSr24Y.jpg) - MetaTriforce
 
-      -  [**2**](https://i.imgur.com/W8bquCd.jpg) - ukantor
+      -  [**2**](https://i.imgur.com/EdFjAMu.jpg) - ukantor
 
 -  [**Frederick**](https://i.imgur.com/xQaBELv.jpg) - oPlaiD
 
@@ -5206,6 +5216,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/HSiopFZ.png) - 0blivionknight
 
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
+
+      -  [**2**](https://i.imgur.com/uBovQs5.jpg) - Glacia471
+
+-  [**Lysithea (Brave)**](https://i.imgur.com/67UHzu4.jpg) - Blizzardthree
+
+      -  [**2**](https://i.imgur.com/GgbrY6T.jpg) - HolyKarma-
 
 -  [**Mae**](https://i.imgur.com/da4Pqe1.png) - exxit5408
 
