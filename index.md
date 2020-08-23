@@ -531,6 +531,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Bernadetta**](https://i.imgur.com/VKriCLF.jpg) - Killing-Poison
 
+      -  [**2**](https://i.imgur.com/bEfrRlJ.png) - Dawns_Horizon
+
 -  [**Beruka**](http://i.imgur.com/ryX5K8O.jpg) - Lattikhya
 
       -  [**2**](https://i.imgur.com/DsHISOQ.png) - dejvy
@@ -2045,7 +2047,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Dimitri (Brave)**](https://i.imgur.com/CgmFhyK.png) - Psistriker94
 
-      -  [**2**](https://i.imgur.com/Lqg6uhS.png) - BlackStar3000
+      -  [**2**](https://i.imgur.com/2aVOgzv.png) - BlackStar3000
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
@@ -3632,6 +3634,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/N3GMKje.jpg) - kungfugator57
 
       -  [**6**](https://media.discordapp.net/attachments/559200346652540928/656634135170777127/image0.png) - DarkSlayer415
+      
+      -  [**7**](https://i.imgur.com/saHiWzk.png) - Dawns_Horizon
 
 -  [**Hinoka (Hostile Springs)**](https://i.imgur.com/0YTRvt3.png) - LucinaTheExalt
 
