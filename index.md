@@ -73,6 +73,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
 
+     -  [**2**](https://i.imgur.com/UijRJBr.png) - Taichikins
+
 -  [**Altena**](https://i.imgur.com/VMiX8Wl.jpg) - AgentEris
 
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
@@ -2652,6 +2654,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ephraim + Lyon**](https://i.imgur.com/Dag3zsb.jpg) - Belligero_
 
       -  [**2**](https://i.imgur.com/zgunQhe.jpg) - TiltControls
+      
+      -  [**3**](https://i.imgur.com/GpFkvep.png) - Taichikins
 
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
@@ -3032,6 +3036,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/DEw3XrT.jpg) - abros_vii
 
       -  [**27**](https://i.imgur.com/M3Nnvk5.png) - El_Fonz0
+      
+-  [**Fir (Spring)**](https://i.imgur.com/BxkOWyb.png) - Taichikins
 
 -  [**Fjorm**](https://i.imgur.com/nIIgJPk.jpg) - Kregar123
 
@@ -3187,7 +3193,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/221ookW.jpg) - JVdotcom
 
-      -  [**9**](https://cdn.discordapp.com/attachments/673535121797939203/673535261103095808/image0.png) - KaiDoesStuff
+      -  [**9**](https://cdn.discordapp.com/attachments/673535121797939203/748932012412502078/image0.png) - KaiDoesStuff
 
 -  [**Gaius (Summer)**](https://i.imgur.com/k8wfVxT.jpg) - Antartix 
 
@@ -4151,7 +4157,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/ilo8jhf.jpg) - TheFerydra
 
-      -  [**9**](https://i.imgur.com/5g6eTvU.jpg) - KaiDoesStuff
+      -  [**9**](https://cdn.discordapp.com/attachments/673535121797939203/748931981324189886/image0.png) - KaiDoesStuff
 
       -  [**10**](https://i.imgur.com/h2Swe9T.jpg) - WoomyX1000
       
