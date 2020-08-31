@@ -2190,6 +2190,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Edelgard (Brave)**](https://i.imgur.com/mqzoy6s.jpg) - The_Anti_Nero
 
       -  [**2**](https://i.imgur.com/5C4G0Ad.jpg) - AgentEris
+      
+      -  [**3**](https://i.imgur.com/pGaj110.jpg) - Rafaelraven94
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
