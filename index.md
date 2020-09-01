@@ -1853,7 +1853,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/6Zd6VdR.png) - J_Dubs_93
 
--  [**Corrin F (Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
+-  [**Corrin (F Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/G0Ym9ED.png) - FryingIceCream
 
@@ -1864,6 +1864,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/HDNiHWw.jpg) - MetaTriforce
       
       -  [**6**](https://i.imgur.com/HptwMjn.png) - Average-00
+      
+-  [**Corrin (F Legendary)**](https://i.imgur.com/7BakwVp.jpg) - Kami-San
+
+      -  [**2**](https://i.imgur.com/C4IuVTp.jpg) - Rabbytt
 
 -  [**Corrin (M)**](http://i.imgur.com/qq0VqlO.png) - exxit5408
 
@@ -5744,6 +5748,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/tmB7UAp.png) - MidnightLime
 
 -  [**Mikoto**](https://i.imgur.com/sFuk8pu.png) - n_kaze_
+
+-  [**Mila**](https://i.imgur.com/PZGPlIk.jpg) - Kami-San
+
+      -  [**2**](https://i.imgur.com/DextOe6.jpg) - Rabbytt
 
 -  [**Minerva**](https://i.imgur.com/FpqA7ih.png) - equiNine
 
