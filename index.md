@@ -233,13 +233,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://cdn.discordapp.com/attachments/673535121797939203/713743086135541760/image0.png) - KaiDoesStuff
       
-      -  [**8**](https://i.imgur.com/GMnGrzp.jpg) - KuronixFirhyx
+      -  [**8**](https://i.imgur.com/nWyjOqP.jpg) - KuronixFirhyx
       
       -  [**9**](https://i.imgur.com/TwTpfcM.jpg) - JdiJwa
       
       -  [**10**](https://cdn.discordapp.com/attachments/363939373701398530/750884828941123644/image1.png) - BobbyYukitsuki
-      
-      -  [**11**](https://i.imgur.com/nWyjOqP.jpg) - KuronixFirhyx
 
 -  [**Athena**](http://i.imgur.com/6Tww9cB.png) - exxit5408
 
