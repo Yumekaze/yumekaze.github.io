@@ -2690,6 +2690,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**33**](https://i.imgur.com/8Ek8dE4.jpg) - Papiville
       
       -  [**34**](https://i.imgur.com/7DGzwbW.png) - minno
+      
+      -  [**35**](https://i.imgur.com/ANOrUA5.jpg) - Metroplex7
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
@@ -8355,7 +8357,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**33**](https://imgur.com/gallery/X8dcFba) - crunk_juice34
 
-      -  [**34**](https://i.imgur.com/AgSergu.jpg) - Metroplex7
+      -  [**34**](https://i.imgur.com/3nyfi25.jpg) - Metroplex7
 
       -  [**35**](https://imgur.com/a/tl2qP5V) - deoxys_101993
 
@@ -8611,7 +8613,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**35**](https://i.imgur.com/ZKIsTWp.jpg) - kungfugator57
 
-      -  [**36**](https://i.imgur.com/HuxjHkg.jpg) - Metroplex7
+      -  [**36**](https://i.imgur.com/ORzlcLn.jpg) - Metroplex7
 
       -  [**37**](https://i.imgur.com/oTmPpHs.jpg) - Renphro
 
