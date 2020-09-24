@@ -1960,6 +1960,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Corrin (F Legendary)**](https://i.imgur.com/7BakwVp.jpg) - Kami-San
 
       -  [**2**](https://i.imgur.com/C4IuVTp.jpg) - Rabbytt
+      
+      -  [**3**](https://i.imgur.com/wwQgv1x.png) - G-N-S
 
 -  [**Corrin (M)**](http://i.imgur.com/qq0VqlO.png) - exxit5408
 
@@ -4578,6 +4580,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**40**](https://i.imgur.com/BJtf91i.jpg) - Patchoru
       
       -  [**41**](https://i.imgur.com/mqgMRbE.png) - 9s_stan
+      
+      -  [**42**](https://i.imgur.com/1qM8pzV.jpg) - MelHuney
 
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
@@ -7269,7 +7273,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/JrIUNrB.png) - JdiJwa
 
-      -  [**4**](https://i.imgur.com/Xi72XiP.png) - G-N-S
+      -  [**4**](https://i.imgur.com/ILtwCXl.png) - G-N-S
 
       -  [**5**](https://i.imgur.com/xxfQtnu.jpg) - Skyliner14
 
