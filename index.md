@@ -6110,6 +6110,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/BCEbOmQ.png) - Gotta-Snatch-Em-All
       
       -  [**9**](https://i.imgur.com/dOLv9Aw.jpg) - tamminhvtkg
+      
+      -  [**10**](https://preview.redd.it/2s5xooy6t7q51.png?width=480&auto=webp&s=33658054516066829b9571aef8285622fd88852f) - GeorgeRivera777
 
 -  [**Morgan (F)**](https://i.imgur.com/9NYwe1p.png) - Jazzswipe
 
