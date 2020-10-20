@@ -690,6 +690,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/uX8nFZm.jpg) - andypin2002
       
       -  [**23**](https://i.imgur.com/9BCoaiq.jpg) - RestlessRoman
+      
+      -  [**24**](https://i.imgur.com/CnvVfgr.png) - EpicRome23
 
 -  [**Boey**](http://i.imgur.com/Mwx23oB.png) - exxit5408
 
@@ -1298,6 +1300,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/nBPQhd8.jpg) - umarekawari
       
       -  [**15**](https://i.imgur.com/b3CbEfv.jpg) - PegaponyPrince
+      
+      -  [**16**](https://i.imgur.com/ydJ9Yo1.png) - EpicRome23
       
 -  [**Ced**](https://i.imgur.com/aacelga.png) - Sidoking
 
@@ -3686,6 +3690,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/WAKF8se.png) - kit_you_out
       
       -  [**29**](https://i.imgur.com/6YuB6O0.jpg) - PegaponyPrince
+      
+      -  [**30**](https://i.imgur.com/cpnzQlr.jpg) - MelHuney
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -4256,6 +4262,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Jill**](https://i.imgur.com/QP88SvU.png) - AlbinosRideDinos
 
       -  [**2**](https://i.imgur.com/5FCVi8t.jpg) - Itsmisterpool
+      
+      -  [**3**](https://i.imgur.com/3iiEYge.png) - EpicRome23
 
 -  [**Joshua**](https://cdn.discordapp.com/attachments/507269185408073746/618103969184612362/Screenshot_20190810-192925__01.jpg) - AudhulmaBoy
 
@@ -4554,6 +4562,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/rwHACbN.jpg) - Aromantic_Benzene
       
       -  [**5**](https://i.imgur.com/GJE6FQd.jpg) -  JdiJwa
+      
+      -  [**6**](https://i.imgur.com/qXxxKj3.png) - EpicRome23
 
 -  [**Kiria**](https://i.imgur.com/arLmeWz.jpg) - Belligero_
 
@@ -4642,6 +4652,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://cdn.discordapp.com/attachments/635888364821938196/739518688381763614/Screenshot_20200802-172024.png) - L0RDR0B
       
       -  [**10**](https://i.imgur.com/EhkjxL9.jpg) - 1breadstick
+      
+      -  [**11**](https://i.imgur.com/Ep37Uan.png) - EpicRome23
 
 -  [**L'Arachel**](https://cdn.discordapp.com/attachments/285145120037404673/408742393014386689/image.png) - Eirikafeh
 
@@ -4726,6 +4738,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**41**](https://i.imgur.com/mqgMRbE.png) - 9s_stan
       
       -  [**42**](https://i.imgur.com/1qM8pzV.jpg) - MelHuney
+      
+      -  [**43**](https://i.imgur.com/u1mw8vb.png) - EpicRome23
 
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
@@ -5110,6 +5124,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**40**](https://i.imgur.com/RKZcJhh.png) - TankyMage
       
       -  [**41**](https://i.imgur.com/6khnYJT.png) - minno
+      
+      -  [**42**](https://i.imgur.com/YqIuqaS.png) - EpicRome23
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -5368,6 +5384,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/SMehv4K.png) - The_Anti_Nero
       
       -  [**12**](https://preview.redd.it/vm3v16jt9e251.png?width=432&auto=webp&s=12566e8ecb6f0ec945d5ad58529b29706fda1926) - ChernoRose
+      
+      -  [**13**](https://i.imgur.com/r1s3qgw.jpg) - Thehalohedgehog
 
 -  [**Lucius**](https://i.imgur.com/mQ5FQZR.jpg) - Gulassa 
 
@@ -5480,6 +5498,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**36**](https://i.imgur.com/RGkSFWl.png) - Fehinaction
       
       -  [**37**](https://i.imgur.com/72ktwoT.png) - Pu22leKing
+      
+      -  [**38**](https://i.imgur.com/yxTwLur.png) - Jojojomoo35
 
 -  [**Lukas (Picnic)**](https://imgur.com/a/6EuSQnC) - PapiJonty
 
@@ -5522,6 +5542,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.redd.it/1lib04dwzaj31.jpg) - finallyfantastical
 
       -  [**6**](https://i.imgur.com/WvwxgTb.jpg) - Geomint
+      
+      -  [**7**](https://i.imgur.com/LZ3Wlp0.png) - EpicRome23
 
 -  [**Lyn (Bride)**]( http://i.imgur.com/Vyi3aOw.png) - exxit5408
 
@@ -5610,6 +5632,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
 
       -  [**2**](https://i.imgur.com/uBovQs5.jpg) - Glacia471
+      
+      -  [**3**](https://i.imgur.com/Qtt5HiU.png) - imasalesman
 
 -  [**Lysithea (Brave)**](https://i.imgur.com/67UHzu4.jpg) - Blizzardthree
 
@@ -5686,6 +5710,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Maribelle**](https://i.imgur.com/tNJ0PaU.jpg) - MDonkay
 
       -  [**2**](https://i.imgur.com/3QG9W2H.png) - L0RDR0B
+      
+      -  [**3**](https://i.imgur.com/sVKmbID.jpg) - selhelm
 
 -  [**Marisa**](https://i.redd.it/ejl8gujbzqp21.png) - Kuraran
 
@@ -6472,6 +6498,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/vcKDZ9l.jpg) - Menetone
       
       -  [**14**](https://i.imgur.com/rAid9cR.jpg) - Totsutei
+      
+      -  [**15**](https://i.imgur.com/0JL0VQZ.jpg) - Chowdahhh
+      
+-  [**Nephenee (Soiree)**](https://i.imgur.com/vh3CgL1.jpg) - Chowdahhh
 
 -  [**Niles**](https://i.imgur.com/ph96YFo.png) - gweesho 
 
@@ -6728,6 +6758,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**82**](https://i.imgur.com/PQ0vawZ.jpg) - Metroplex7
       
       -  [**83**](https://i.imgur.com/siIg2Qr.jpg) - Ant1ng
+      
+      -  [**84**](https://i.imgur.com/oILYJKU.png) - EpicRome23
 
 -  [**Nino (SF)**](https://cdn.discordapp.com/attachments/312889387631509514/454581030603587587/Screenshot_2018-06-08-19-42-08_com.nintendo.zaba.png) - rowcla
 
@@ -6770,6 +6802,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/65FcCS7.jpg) - JdiJwa
       
       -  [**8**](https://i.imgur.com/U6fxima.jpg)- Totsutei
+      
+      -  [**9**](https://i.imgur.com/FuZM2GR.jpg) - selhelm
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
 
@@ -6994,6 +7028,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/S8Xn1RL.png) - 9s_stan
       
       -  [**19**](https://i.imgur.com/hoLSBbt.jpg) - Totsutei
+      
+      -  [**20**](https://i.imgur.com/jUox6uH.png) - EpicRome23
       
 -  [**Oboro (Bridal)**](https://cdn.discordapp.com/attachments/294552858756382731/713210844661415977/plusten.jpg) - TomatoFlakes
 
@@ -8676,6 +8712,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**46**](https://i.imgur.com/mwey1Tc.jpg) - Pope_Penguin
       
       -  [**47**](https://i.imgur.com/rjDZYsv.png) - LaiLiPing
+      
+      -  [**48**](https://i.imgur.com/ZIyZZuo.png) - EpicRome23
 
 -  [**Shigure (Performing)**](https://i.imgur.com/QP6fkg4.png) - exxit5408
 
@@ -9618,6 +9656,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/o63Q6mI.jpg) - YuvonGrohiik
       
       -  [**10**](https://i.imgur.com/tC5o4TP.jpg) - Nyphus
+      
+      -  [**11**](https://i.imgur.com/rOJ6C7d.jpg) - Metroplex7
 
 -  [**Thrasir**](https://i.imgur.com/mCRNkDz.png) - fjorm_book_ii
 
@@ -9974,6 +10014,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**39**](https://i.imgur.com/hFTQ7Zc.jpg) - expaja
       
       -  [**40**](https://i.imgur.com/DkLoh9W.jpg) - xZealHakune
+      
+      -  [**41**](https://i.imgur.com/zGnH6Bh.png) - EpicRome23
 
 -  [**Titania (Greil's Devoted)**](https://i.imgur.com/GaZjSHy.png) - icydragon0605
 
