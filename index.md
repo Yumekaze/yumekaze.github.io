@@ -2878,6 +2878,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/GpFkvep.png) - Taichikins
       
       -  [**4**](https://i.redd.it/l0pmg3u4tnq51.png) - justinator119
+      
+-  [**Eremiya**](https://i.imgur.com/258vwG6.jpg) - Camping_Noob
 
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
@@ -4570,6 +4572,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/0Rgag9d.jpg) - Cannedcabbage
       
       -  [**3**](https://i.imgur.com/4xcBwU1.jpg) - averagearti
+      
+      -  [**4**](https://i.imgur.com/dDrSDHV.jpg) - Camping_Noob
 
 -  [**Klein**](https://i.imgur.com/es30EaO.png) - 24914 
 
@@ -4842,6 +4846,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/njOf1LL.png) - Erebosio
       
       -  [**10**](https://imgur.com/a/aocCev7) - SorcererHex
+      
+      -  [**11**](https://i.imgur.com/IVIDaMK.jpg) - MrMedicinal
 
 -  [**Laevatain(New Years)**](https://imgur.com/Sbt7Jzf) - dejvy
 
@@ -9371,6 +9377,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/VZjSwJe.png) - LaiLiPing
       
+      -  [**6**](https://i.imgur.com/bMbn2UP.jpg) - MrMedicinal
+      
 -  [**Sylvain (Summer)**](https://i.imgur.com/Q1qA9uC.jpg) - kieku1
 
       -  [**2**](https://i.imgur.com/cDQoL8J.png) - Taichikins
@@ -10082,6 +10090,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/oAoer8i.jpg) - MetaTriforce
 
       -  [**11**](https://i.imgur.com/4NPtX0I.png) - BlackwingBoi
+      
+      -  [**12**](https://i.imgur.com/7XSZB7g.jpg) - MrMedicinal
 
 -  [**Veronica (Spring)**](https://i.imgur.com/shGRLWg.png) - Blizzardthree
 		
