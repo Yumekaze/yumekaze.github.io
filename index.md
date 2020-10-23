@@ -3394,6 +3394,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
       -  [**2**](https://i.imgur.com/pV5JvU4.jpg) - OriginalTsumi
+      
+      -  [**3**](https://i.imgur.com/SC5DEXF.jpg) - KHNephrite
 
 -  [**Forsyth**](https://i.imgur.com/piSr24Y.jpg) - MetaTriforce
 
@@ -4817,7 +4819,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Lachesis (To Stay Dreaming)**](https://i.imgur.com/1XrTGfc.jpg) - Rabbytt
 
-      -  [**2**](https://i.imgur.com/hxwM9wS.jpg) - stephenthatfoste
+      -  [**2**](https://i.imgur.com/MyCT9tf.jpg) - stephenthatfoste
       
       -  [**3**](https://i.imgur.com/5028Sw6.jpg) - Phanngle
 
@@ -6838,6 +6840,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/U6fxima.jpg)- Totsutei
       
       -  [**9**](https://i.imgur.com/FuZM2GR.jpg) - selhelm
+      
+      -  [**10**](https://i.imgur.com/EwDnIDt.jpg) - stephenthatfoste
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
 
