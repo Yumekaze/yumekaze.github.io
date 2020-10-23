@@ -4002,6 +4002,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/LemVhnX.jpg) - raike1028
 
       -  [**12**](https://i.imgur.com/XU9qgLc.png) - WakameTaishi
+      
+      -  [**13**](https://cdn.discordapp.com/attachments/410254755278094338/769035235940892742/image1.png) - xOiram_
 
 -  [**Ike (Brave)**](https://i.imgur.com/zQY6AQr.png) - PkPhreak_official
 
@@ -4044,6 +4046,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/iGtRf7v.jpg) - Flareblitz12
       
       -  [**21**](https://i.imgur.com/izXxVeU.png) - minno
+      
+      -  [**22**](https://cdn.discordapp.com/attachments/410254755278094338/769035234892578867/image0.png) - xOiram_
 
 -  [**Ike (Legendary)**](https://i.imgur.com/DGqWXvI.png) - Sadistice
 
@@ -8603,9 +8607,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**19**](https://i.imgur.com/LwEVykq.jpg) - BlueToon_Link
       
--  [**Shamir**](https://i.imgur.com/iBC0FGQ.png) - BlackStar3000
+-  [**Shamir**](https://i.imgur.com/fIRVUhf.png) - BlackStar3000
 
       -  [**2**](https://i.imgur.com/KVNHbpK.jpg) - Climber_Fuuka
+      
+      -  [**3**](https://i.imgur.com/aesuu7P.png) - EpicRome23
 
 -  [**Shanna**](http://i.imgur.com/iDzD1QR.png) - StirFryTuna 
 
