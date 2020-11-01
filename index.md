@@ -772,6 +772,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/o3uNKrz.png) - TheLeiss
       
       -  [**9**](https://i.imgur.com/Wfn59Fo.jpg) - PegaponyPrince
+      
+      -  [**10**](https://i.imgur.com/fvqnClL.jpg) - Fehinaction
 
 -  [**Byleth (F)**](https://i.imgur.com/kS7vxnJ.jpg) - cocacolafart
 
@@ -1850,6 +1852,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**53**](https://i.imgur.com/vB8QVOd.jpg) - alexclow
       
       -  [**54**](https://i.imgur.com/2bnraSG.jpg) - secret_julius
+      
+      -  [**55**](https://i.imgur.com/ptcL7KL.png) - Turen_
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -2284,6 +2288,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/fv3j9Nn_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
       
       -  [**23**](https://i.imgur.com/V5lvTqB.png) - Gotta-Snatch-Em-All
+      
+      -  [**24**](https://i.imgur.com/D1loyBW.png) - Turen_
 
 -  [**Dorcas**](https://i.imgur.com/Z8e1xnx.png) - exxit5408
 
@@ -2510,6 +2516,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/58JESrp_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
       
       -  [**9**](https://i.imgur.com/ikVRJcB.png) - 0blivionknight
+      
+      -  [**10**](https://i.imgur.com/ABrgFTq.jpg) - go4ino
 
 -  [**Eir (New Year's)**](https://scontent-waw1-1.xx.fbcdn.net/v/t1.15752-9/s1080x2048/92186699_2943833139176431_447169351791935488_n.jpg?_nc_cat=103&_nc_sid=b96e70&_nc_ohc=jelqMSJMdHIAX_OfklQ&_nc_ht=scontent-waw1-1.xx&_nc_tp=7&oh=7ddb5f929718af90b5a3f02391413760&oe=5EB0B059) - Eleseia
 
@@ -4446,6 +4454,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**34**](https://i.imgur.com/OZQfHu0.jpg) - Dark-C
       
       -  [**35**](https://i.imgur.com/Z1n0XDD.jpg) - RestlessRoman
+      
+      -  [**36**](https://i.imgur.com/bsHqChJ.png) - Turen_
 
 -  [**Kagero (Hares at the Fair)**](https://i.imgur.com/DDPWUna.png) - Afrogdite
 
@@ -5164,6 +5174,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**41**](https://i.imgur.com/6khnYJT.png) - minno
       
       -  [**42**](https://i.imgur.com/YqIuqaS.png) - EpicRome23
+      
+      -  [**43**](https://i.imgur.com/qsIZZDy.png) - Turen_
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -6800,6 +6812,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**83**](https://i.imgur.com/siIg2Qr.jpg) - Ant1ng
       
       -  [**84**](https://i.imgur.com/oILYJKU.png) - EpicRome23
+      
+      -  [**85**](https://i.imgur.com/ikg9cxt.png) - Turen_
 
 -  [**Nino (SF)**](https://cdn.discordapp.com/attachments/312889387631509514/454581030603587587/Screenshot_2018-06-08-19-42-08_com.nintendo.zaba.png) - rowcla
 
@@ -8078,6 +8092,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/e9V8Ile.png) - LaiLiPing
       
       -  [**13**](https://i.imgur.com/Hs9RvoA.jpg) - Totsutei
+      
+      -  [**14**](https://i.imgur.com/RE6taEa.png) - Turen_
 
 -  [**Roy**](http://i.imgur.com/pF2ulgO.png) - exxit5408
 
@@ -8158,6 +8174,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**39**](https://i.imgur.com/EBGDFzd.jpg) - OriginalTsumi
       
       -  [**40**](https://i.imgur.com/fSLPhvE.jpeg) - ssbmelee99
+      
+      -  [**41**](https://i.imgur.com/RrZTZaP.png) - Turen_
 
 -  [**Roy (Brave)**](http://i.imgur.com/G5SV5Zf.png) - exxit5408
 
@@ -8438,6 +8456,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**34**](https://i.imgur.com/HxoA0Eh.jpg) - Jagoslaw
       
       -  [**35**](https://i.imgur.com/Y2HHqha.jpg) - Friitig
+      
+      -  [**36**](https://i.imgur.com/4gqQObJ.png) - Turen_
 
 -  [**Seliph**](https://i.imgur.com/1zraZ4U.png) - exxit5408
 
@@ -9995,6 +10015,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/hT0AxZ9.jpg) - 1breadstick
       
 -  [**Tiki + Ninian (Halloween)**](https://i.imgur.com/vpIAgzJ.jpg) - Drake_Erif
+
+      -  [**2**](https://i.imgur.com/IRW3DUN.jpg) - Rabbytt
 		
 -  [**Titania**](http://i.imgur.com/QoM5BR6.png) - exxit5408	
 
