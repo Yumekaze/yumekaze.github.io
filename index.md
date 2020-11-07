@@ -7480,6 +7480,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/WAlyyGM.jpg) - Daveguy11
       
       -  [**3**](https://i.imgur.com/7q5mzvG.jpg) - alexclow
+      
+      -  [**4**](https://i.imgur.com/A6D6p76.jpg) - JdiJwa
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
 
