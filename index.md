@@ -2856,6 +2856,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/13KbJEV.jpg) - Yuvalis
       
       -  [**12**](https://i.imgur.com/AmNFVQ5.jpg) - alexclow
+      
+      -  [**13**](https://i.imgur.com/sfl2Rah.png) - 9s_stan
 
 -  [**Eliwood (Brave)**](https://i.imgur.com/Qa4cEJL.png) - Phenollam
 
@@ -4532,6 +4534,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/Xkgk7fG.jpg) - NohrianScumbag
       
       -  [**12**](https://i.imgur.com/ZXY9Wxh.png) - Phanngle
+      
+      -  [**13**](https://i.postimg.cc/MHY98PQx/E420-A151-2-BF7-423-E-AABA-F7-AE1-BB79-A03.png) - JCW18
 
 -  [**Karel**](http://i.imgur.com/FlxFYMt.png) - exxit5408
 
@@ -6054,6 +6058,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/5WYQJ3D.jpg) - Ant1ng
       
       -  [**13**](https://i.imgur.com/fYSn0rc.jpg) - Phanngle
+      
+      -  [**14**](https://i.imgur.com/0VkAIJP.png) - 9s_stan
 
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
@@ -6884,6 +6890,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/FuZM2GR.jpg) - selhelm
       
       -  [**10**](https://i.imgur.com/EwDnIDt.jpg) - stephenthatfoste
+      
+      -  [**11**](https://i.imgur.com/1Uv4pre.png) - 9s_stan
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
 
@@ -8093,6 +8101,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Rolf**](https://i.imgur.com/LIs7VDc.jpg) - damagereducer
 
+      -  [**2**](https://i.postimg.cc/7hPgSx58/B0-F41-DCB-57-D6-4-E28-8572-894-E383-CBEE1.png) - JCW18
+
 -  [**Ross**](https://i.imgur.com/7ve6XSZ.jpg) - Belligero_
 
       -  [**2**](https://i.imgur.com/wyudZuS.png) - UpsideDownTofu
@@ -8258,12 +8268,14 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/SzAJ8sN.jpg) - euphemea
 
       -  [**4**](https://i.imgur.com/Cwj1cHk.jpg) - Tman2002
+      
+      -  [**5**](https://i.imgur.com/AqvTsBf.png) - tsuky94
 
 -  [**Ryoma (Festival in Hoshido)**](https://imgur.com/lyEtLdn) - KatDaddy021
 
       -  [**2**](https://i.imgur.com/FcD3ZBJ.png)  - tsuky94
 
--  [**Ryoma (Hot Spring's)**](https://i.imgur.com/AAeHSdd.png) - tsuky94
+-  [**Ryoma (Hot Spring's)**](https://i.imgur.com/7Tuf1S4.png) - tsuky94
 
 -  [**Saber**](https://i.imgur.com/4BKOvmV.png) - Eirikafeh
 
