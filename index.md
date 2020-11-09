@@ -599,7 +599,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/CE4e27P.jpg) - Totsutei
       
-      -  [**6**](https://i.ibb.co/RgFLkSD/Bernadetta-Suspect-Dogs.png) - Suspect_Dogs 
+      -  [**6**](https://i.ibb.co/RgFLkSD/Bernadetta-Suspect-Dogs.png) - Suspect_Dogs
+      
+      -  [**7**](https://i.imgur.com/NVV6Lkj.jpg) - FangJustice
 
 -  [**Beruka**](http://i.imgur.com/ryX5K8O.jpg) - Lattikhya
 
@@ -1509,7 +1511,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**52**](https://i.imgur.com/C8nRSVP.jpg) - kaeporo
 
-      -  [**53**](https://i.imgur.com/inx3K7q.jpg) - TheLeiss
+      -  [**53**](https://i.imgur.com/QQEQ6D6.png) - TheLeiss
 
       -  [**54**](https://i.imgur.com/bAsHjir.jpg) - theprodigy64
 
@@ -2509,7 +2511,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**48**](https://i.imgur.com/9V3QgSv.png) - merrickhalp
 
-      -  [**49**](https://i.imgur.com/eOqBouJ.png) - TheLeiss
+      -  [**49**](https://i.imgur.com/IFwymCu.png) - TheLeiss
       
       -  [**50**](https://i.imgur.com/CVLhGFy.jpg) - GoldenYoshistar1
 
@@ -5722,6 +5724,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/uBovQs5.jpg) - Glacia471
       
       -  [**3**](https://i.imgur.com/Qtt5HiU.png) - imasalesman
+      
+      -  [**4**](https://i.imgur.com/sVfxE5O.jpg) - NautilusMain
 
 -  [**Lysithea (Brave)**](https://i.imgur.com/67UHzu4.jpg) - Blizzardthree
 
@@ -6454,6 +6458,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/BWYwWiK.jpg) - SoleilMain
       
       -  [**29**](https://i.imgur.com/Aa1Enzh.png) - neurot0
+      
+      -  [**30**](https://i.imgur.com/aYXY67S.jpg) - NautilusMain
 
 -  [**Myrrh (Halloween)**](https://imgur.com/lToO9a6) - dirtysmall
 
@@ -7744,6 +7750,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**53**](https://i.imgur.com/pTWvOBs.jpg) - Ant1ng
       
       -  [**54**](https://i.imgur.com/zPyTwCu.png) - LaiLiPing
+      
+      -  [**55**](https://i.imgur.com/0XLa43o.png) - TheLeiss
 
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
@@ -8146,6 +8154,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/Hs9RvoA.jpg) - Totsutei
       
       -  [**14**](https://i.imgur.com/RE6taEa.png) - Turen_
+      
+      -  [**15**](https://i.imgur.com/yCdLW23.jpg) - jp_2400
 
 -  [**Roy**](http://i.imgur.com/pF2ulgO.png) - exxit5408
 
@@ -8751,7 +8761,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/SQY4E2G.png) - nyxduplex
 		
-
 -  [**Sheena**](https://i.imgur.com/rWBT9Fs.png) - equiNine
 
       -  [**2**](http://i.imgur.com/tQG1Fsk.jpg) - exxit5408
@@ -8836,7 +8845,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**42**](https://i.imgur.com/9s7Gbb2.jpg) - oplaxgoalie2
 
-      -  [**43**](https://i.imgur.com/mOvrjBq.jpg) - TheLeiss
+      -  [**43**](https://i.imgur.com/PQjLwPo.png) - TheLeiss
 
       -  [**44**](https://i.imgur.com/Q1Ev5dt.jpg) - JsKingBoo
 
