@@ -918,6 +918,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**55**](https://i.imgur.com/K4ZXs3J.jpg) - Ant1ng
       
       -  [**56**](https://i.imgur.com/LUpCF8x.png) - neurot0
+      
+      -  [**57**](https://i.imgur.com/u2RfzJ0.jpg) - jp_2400
 
 -  [**Caeda (Bride)**](http://i.imgur.com/G5MvAro.jpg) - exxit5408
 
@@ -3987,9 +3989,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Hubert**](https://i.imgur.com/3WoVRZV.png) - yulanan
 
+      -  [**2**](https://i.imgur.com/We6Pwfq.png) - pokerapping
+
 -  [**Iago**](https://i.imgur.com/rzHs1KD.jpg) - Blizzardthree
 
       -  [**2**](https://i.imgur.com/AWh8iLc.png) - BermudaSwampus
+      
+      -  [**3**](https://i.imgur.com/5w0BCMV.png) - pokerapping
 
 -  [**Idunn**](https://i.imgur.com/mpQzTDk.jpg) - Sivarro
 
@@ -5712,6 +5718,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/4k7z5jz.png) - TyrantCarnivore
       
       -  [**9**](https://i.imgur.com/cojZUPD.jpg) - reshprince
+      
+      -  [**10**](https://cdn.discordapp.com/attachments/431207047715880961/774089137128996874/Screenshot_20201106_145332_com.nintendo.zaba.jpg) - Yumekaze
 
 -  [**Lyon (Fallen)**](https://i.imgur.com/c3oJSYX.jpg) - Andantina
 
