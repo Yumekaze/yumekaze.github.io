@@ -2384,6 +2384,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/YtUmHhk.jpg) - Totsutei
       
       -  [**7**](https://i.imgur.com/6udSS3U.jpg) - Climber_Fuuka
+      
+      -  [**8**](https://i.imgur.com/J5HSH75.jpg) - Patchoru
 
 -  [**Edelgard**](https://i.imgur.com/0khhA0W.jpg) - iamdarthyoshi
 
@@ -4330,6 +4332,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/5FCVi8t.jpg) - Itsmisterpool
       
       -  [**3**](https://i.imgur.com/3iiEYge.png) - EpicRome23
+      
+-  [**Jorge**](https://i.imgur.com/v2Rjb1j.jpg) - Patchoru
 
 -  [**Joshua**](https://cdn.discordapp.com/attachments/507269185408073746/618103969184612362/Screenshot_20190810-192925__01.jpg) - AudhulmaBoy
 
@@ -6150,6 +6154,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Mercedes**](https://i.imgur.com/JI7MdjM.jpg) - Fusion_Fear
 
       -  [**2**](https://i.imgur.com/4GYTgKH.jpg) - PokemonJaiden
+      
+-  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
 -  [**Merric**](http://i.imgur.com/87VCHry.png) - exxit5408
 
@@ -9780,6 +9786,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**33**](https://i.imgur.com/kjvOt9N.jpg) - WoomyX1000
       
       -  [**34**](https://i.imgur.com/5wLwnnK.png) - minno
+      
+      -  [**35**](https://i.imgur.com/j46j4NW.jpg) - Patchoru
 
 -  [**Tharja (Winter)**](https://i.imgur.com/q44b8y5.png) - Stratigizer
 
