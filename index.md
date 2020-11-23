@@ -8467,6 +8467,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Selena (Sacred Stones) (Summer)**](https://i.imgur.com/LN07W7k.jpg) - Belligero_
 
+      -  [**2**](https://i.imgur.com/tdzjT8S.jpeg) - citrus363
+
 -  [**Selena (Fates)**](https://i.imgur.com/gL4Ma2U.png) - DKRF
 
       -  [**2**](https://i.imgur.com/eR48kEE.png) - VoltRizer
