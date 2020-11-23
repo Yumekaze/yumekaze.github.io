@@ -8168,8 +8168,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/Hs9RvoA.jpg) - Totsutei
       
       -  [**14**](https://i.imgur.com/RE6taEa.png) - Turen_
-      
-      -  [**15**](https://i.imgur.com/yCdLW23.jpg) - jp_2400
 
 -  [**Roy**](http://i.imgur.com/pF2ulgO.png) - exxit5408
 
