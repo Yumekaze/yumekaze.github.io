@@ -1602,6 +1602,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**32**](https://i.imgur.com/aDaoJZf.jpg) - SaileVonRiegan
       
       -  [**33**](https://i.imgur.com/hXxWSbw.jpg) - andypin2002
+      
+      -  [**34**](https://cdn.discordapp.com/attachments/753796194832220171/781375410755731456/image0.png) - scarletflowers
 
 -  [**Chrom (Spring)**](https://i.imgur.com/KjzYo0I.png) - Berk4823
 
@@ -7879,7 +7881,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**5**](https://i.imgur.com/0ncXPSm.png) - Trigourd
 
-     -  [**6**](https://66.media.tumblr.com/02187317b85c21eb311d70d07cdc0c31/tumblr_pnqt2pwXqD1ri06fgo3_1280.jpg) - scarletflowers
+     -  [**6**](https://cdn.discordapp.com/attachments/753796194832220171/781375411434291210/image1.png) - scarletflowers
 
      -  [**7**](https://i.imgur.com/kRUCtIk.jpg) - phopandafan
 
@@ -8067,7 +8069,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**18**](https://i.imgur.com/rMHwJJC.png) - TheAlondite
 
-      -  [**19**](https://66.media.tumblr.com/7ceaf488b376b7acd08ed23a0bde17a8/tumblr_pnqt2pwXqD1ri06fgo4_1280.jpg) - scarletflowers
+      -  [**19**](https://cdn.discordapp.com/attachments/753796194832220171/781375412185202737/image3.png) - scarletflowers
 
       -  [**20**](https://imgur.com/GDqPkLP) - AiofeAnonymous
 
@@ -8103,7 +8105,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/NxPQgj3.jpg) - Feral_Socks
 
-      -  [**12**](https://66.media.tumblr.com/4e887bcab8cfbe98c9364adb12140a9d/tumblr_pnqt2pwXqD1ri06fgo1_1280.jpg) - scarletflowers
+      -  [**12**](https://cdn.discordapp.com/attachments/753796194832220171/781375411795394570/image2.png) - scarletflowers
 
       -  [**13**](https://cdn.discordapp.com/attachments/294552858756382731/612043715774644235/Screenshot_20190816-155945_Fire_Emblem_Heroes.jpg) - TomatoFlakes
 
@@ -9174,6 +9176,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**67**](https://i.imgur.com/w29NDp7.png) - XDageon11
       
       -  [**68**](https://i.imgur.com/L32l7O3.jpg) - Haydos823
+      
+      -  [**69**](https://i.imgur.com/SXkILus.jpg) - Munther27
 
 -  [**Sonya**](https://i.imgur.com/aNmXrYF.png) - FordFB67
 
