@@ -2058,6 +2058,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/Ljb8SlX.jpg) - Rabbytt
       
       -  [**5**](https://i.imgur.com/6Zd6VdR.png) - J_Dubs_93
+      
+      -  [**6**](https://i.imgur.com/rtasLZx.jpg) - KyleCXVII
 
 -  [**Corrin (F Darkness Within)**](https://i.imgur.com/geLFUXo.jpg) - Rabbytt
 
@@ -3295,6 +3297,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/QCZ8oAK.jpeg) - ssbmelee99
       
+      -  [**9**](https://i.imgur.com/QY6xVxr.png) - Cosmic_Toad_
+      
 -  [**Fiora**](https://i.imgur.com/Qt6AyNS.png) - abracalulu
 
 -  [**Fiora (Summer)**](https://i.imgur.com/K5gfeGd.jpg) - abracalulu
@@ -3310,6 +3314,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/YnK0VJN.jpg) - DuoRogue
       
       -  [**7**](https://i.imgur.com/1NRYPnW.jpg) - alexclow
+      
+      -  [**8**](https://i.imgur.com/kMtv9fz.png) - Cosmic_Toad_
 
 -  [**Fir**](https://i.imgur.com/wIlzj2I.jpg) - Axelnomad1 
 
@@ -4746,6 +4752,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/O9WAq5v.png) - BlazeBloom
       
       -  [**27**](https://i.imgur.com/mHQZgmB.png) - NightmareShane
+      
+      -  [**28**](https://i.imgur.com/VuHxx4u.png) - Cosmic_Toad_
 
 -  [**Kliff**](https://i.imgur.com/y20b8wm.png) - BlueIsForPlayers
 
@@ -5054,6 +5062,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/853lPwv.jpg) - Patchoru
       
       -  [**12**](https://i.imgur.com/zJ7N1bK.jpg) - baeda2
+      
+      -  [**13**](https://i.imgur.com/pAG27sC.png) - Cosmic_Toad_
 
 -  [**Legion**](https://i.imgur.com/iRbPlmn.jpg) - hiimlykos
 
