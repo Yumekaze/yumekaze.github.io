@@ -559,6 +559,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**17**](https://i.redd.it/zp0yanp55jn41.png) - Xangurla
       
+      -  [**18**](https://cdn.discordapp.com/attachments/786148813257441290/786148880843800616/Screenshot_20201209-032611_Fire_Emblem_Heroes.jpg) - Secretsword229
+      
 -  [**Bartre (Spring)**](https://i.imgur.com/qR6LJ9a.jpg) - TiltControls
 
 -  [**Berkut**](http://i.imgur.com/1mBnyt8.jpg) - Symphawnics
@@ -764,6 +766,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/fDoNnEF.jpg) - y_th0ugh
       
       -  [**25**](https://lh3.googleusercontent.com/pw/ACtC-3e3vFq_PFm-QdK-_m73W9JGhCYbf8viiYXQc1yFmnJqQsdPNhjfUF1n9KNiv14h0G5MPWxbFS2q9yeQXhHJGkf9CoakEwoH4eXHsDnufDC1l1OZAyTe8KYeloeplgyfKoAlJwp9uly11bS1KnjxBu85=w448-h943-no?authuser=0) - RedStar133
+      
+      -  [**26**](https://cdn.discordapp.com/attachments/786148813257441290/786148880546267166/Screenshot_20201209-032653_Fire_Emblem_Heroes.jpg) - Secretsword229
 
 -  [**Brady**](https://i.imgur.com/MNHRTq6.jpg) - ThatKoolKidOverThere
 
@@ -7746,6 +7750,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/TbtBo98.png) - Pit_Solitayrh
       
       -  [**12**](https://i.imgur.com/POZGfZi.jpg) - Patchoru
+      
+      -  [**13**](https://cdn.discordapp.com/attachments/786148813257441290/786148880240476220/Screenshot_20201209-032714_Fire_Emblem_Heroes.jpg) - Secretsword229
 
 -  [**Reinhardt**](https://i.imgur.com/r1G9nsI.png) - ayoung1996
 
