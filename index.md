@@ -1294,6 +1294,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**39**](https://i.imgur.com/zfkrH3M.jpg) - Ant1ng
       
       -  [**40**](https://i.imgur.com/mZRjZFM.png) - neurot0
+      
+      -  [**41**](https://i.imgur.com/K3sXZON.png) - BlazeBloom
 
 -  [**Catria (Hares at the Fair)**](https://i.imgur.com/x7082oQ.png) - nosefera2
 
@@ -4071,6 +4073,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Hilda (Winter)**](https://i.imgur.com/5PNZkCm.jpg) - Tollomer
 
+      -  [**2**](https://i.imgur.com/WE0WHY9.jpeg) - zSolaris
+
 -  [**Hinata**](https://i.imgur.com/k0zqlK8.jpg) - lazygreenfox 
 
       -  [**2**](https://i.imgur.com/RjfHvDJ.png) - RanQrusu
@@ -5092,6 +5096,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/IVIDaMK.jpg) - MrMedicinal
 
 -  [**Laevatain (New Years)**](https://imgur.com/Sbt7Jzf) - dejvy
+
+      -  [**2**](https://i.imgur.com/Lr0MZwQ.jpg) - HeavenlySeraph
 
 -  [**Laevatain (Summer)**](https://i.imgur.com/GUuO66H.png) - HeavenlySeraph
 
@@ -10544,6 +10550,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Triandra**](https://i.imgur.com/68Dk19E.jpg) - LinkaFlame
       
 -  [**Tsubasa**](https://media.discordapp.net/attachments/304827783492927489/705327172960911420/image0.png?width=356&height=633) - You-han
+
+      -  [**2**](https://i.imgur.com/ICYz2yU.png) - BlazeBloom
 
 -  [**Ursula**](https://i.imgur.com/e8PznbY.png) - MasatoManatee
 
