@@ -261,6 +261,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**10**](https://i.imgur.com/Y9I3CaR.png) - secret_julius
       
+      -  [**11**](https://i.imgur.com/7P6mZzS.jpg) - MageFighter687
+      
 -  [**Ashnard**](https://i.imgur.com/pivvvoH.jpg) - Valsyar
 
       -  [**2**](https://i.imgur.com/JqukK1T.jpg) - Esrahaddon
@@ -288,6 +290,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://cdn.discordapp.com/attachments/363939373701398530/750884828941123644/image1.png) - BobbyYukitsuki
       
       -  [**11**](https://i.imgur.com/OkAwsHR.jpg) - reshprince
+      
+      -  [**12**](https://i.imgur.com/AOJ6WJF.jpg) - MageFighter687
 
 -  [**Athena**](http://i.imgur.com/6Tww9cB.png) - exxit5408
 
@@ -9174,6 +9178,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**47**](https://i.imgur.com/rjDZYsv.png) - LaiLiPing
       
       -  [**48**](https://i.imgur.com/ZIyZZuo.png) - EpicRome23
+      
+      -  [**49**](https://i.imgur.com/5k76HLr.jpg) - MageFighter687
 
 -  [**Shigure (Performing)**](https://i.imgur.com/QP6fkg4.png) - exxit5408
 
