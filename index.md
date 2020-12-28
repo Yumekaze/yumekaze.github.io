@@ -3524,6 +3524,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/WN0rymx.jpg) - GoldenYoshistar1
       
       -  [**9**](https://i.imgur.com/HRJQaFI.png) - SuperSnivMatt
+      
+      -  [**10**](https://media.discordapp.net/attachments/673535121797939203/792895241098756096/image0.png) - KaiDoesStuff
 
 -  [**Flora**](https://i.imgur.com/sdzuvdH.png) - EpicSquids
 
@@ -7742,6 +7744,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
+      
+-  [**Plumeria**](https://i.imgur.com/pTyQnOE.jpg) - Rabbytt
 
 -  [**Priscilla**](https://i.imgur.com/SXsCkF7.png) - Stratigizer 
 
@@ -7930,6 +7934,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/POZGfZi.jpg) - Patchoru
       
       -  [**13**](https://cdn.discordapp.com/attachments/786148813257441290/786148880240476220/Screenshot_20201209-032714_Fire_Emblem_Heroes.jpg) - Secretsword229
+      
+-  [**Reginn**](https://i.imgur.com/Unw1pCq.jpg) - Rabbytt
 
 -  [**Reinhardt**](https://i.imgur.com/r1G9nsI.png) - ayoung1996
 
