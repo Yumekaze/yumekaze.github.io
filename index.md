@@ -10559,6 +10559,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Travant**](https://i.imgur.com/c9TTdfP.jpg) - booleanHipster
 
+      -  [**2**](https://i.imgur.com/YYpkYI4.jpg) - Valsyar
+
 -  [**Triandra**](https://i.imgur.com/68Dk19E.jpg) - LinkaFlame
       
 -  [**Tsubasa**](https://media.discordapp.net/attachments/304827783492927489/705327172960911420/image0.png?width=356&height=633) - You-han
