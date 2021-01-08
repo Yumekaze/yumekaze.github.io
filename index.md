@@ -3949,6 +3949,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Hana (Ninja)**](https://i.imgur.com/H00HDm8.jpg) - Cloudyspecs
 
+      -  [**2**](https://i.imgur.com/wuBo71f.jpg) - Metroplex7
+
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
       -  [**2**](https://i.imgur.com/MI1o9KO.jpg) - PM_ME_YOUR_WHALE
