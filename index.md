@@ -6131,7 +6131,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/7h4t5iP.jpg) - IronCatFish
 
-      -  [**11**](https://i.imgur.com/j5RRe4K.png) - s07195
+      -  [**11**](https://i.imgur.com/k0XXM42.jpg) - s07195
       
       -  [**12**](https://i.imgur.com/Or99Pxc.jpg) - Phaaze13
 
@@ -8413,7 +8413,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**38**](https://i.imgur.com/XkfHHJx.jpg) - Bang-a-Bonk
 
-      -  [**39**](https://i.imgur.com/HA4W2mH.png) - s07195
+      -  [**39**](https://i.imgur.com/rowI2Lh.jpg) - s07195
       
       -  [**40**](https://i.imgur.com/1At0sPa.jpg) - Neioo__
       
@@ -10493,7 +10493,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**77**](https://i.imgur.com/HZQptnb.png) - TerdMuncher
 
-      -  [**78**](https://i.imgur.com/iTEeBop.png) - s07195
+      -  [**78**](https://i.imgur.com/2gnT5zS.jpg) - s07195
       
       -  [**79**](https://i.imgur.com/Bo1JGDa.jpg) - Neioo__
       
@@ -10726,6 +10726,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/6Os76Za.png) - X-pert74
       
       -  [**3**](https://i.imgur.com/tJ5P1k8.jpg) - The_Big_ID
+      
+      -  [**4**](https://i.imgur.com/BU7DY1w.jpg) - s07195
 
 -  [**Valter**](https://i.imgur.com/ARxaT5k.jpg) - ValiantDuran
 
