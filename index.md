@@ -90,6 +90,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**4**](https://i.imgur.com/E8XnNzs.jpg) - raike1028
      
      -  [**5**](https://i.imgur.com/QB1paqA.jpg) - TiltControls
+     
+     -  [**6**](https://i.imgur.com/ndrJplI.png) - kit_you_out
 
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
@@ -831,7 +833,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/aqE0JyZ.jpg) - Soren319
       
-      -  [**6**](https://i.imgur.com/akHBk1a.png) - kit_you_out
+      -  [**6**](https://i.imgur.com/njstrq9.png) - kit_you_out
       
       -  [**7**](https://i.imgur.com/zhoYiIN.png) - minno
       
@@ -4130,6 +4132,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/kmeJ6Ik.jpg) - Flingar
       
       -  [**14**](https://i.imgur.com/hDyo08r.jpg) - Neioo__
+      
+      -  [**15**](https://i.imgur.com/q3ZvJGu.png) - kit_you_out
 
 -  [**Henry (Halloween)**](https://i.imgur.com/i9yg7Az.png) - exxit5408
 
@@ -4940,6 +4944,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/VuHxx4u.png) - Cosmic_Toad_
       
       -  [**29**](https://i.imgur.com/j9PHgSw.jpg) - LinkaFlame
+      
+      -  [**30**](https://i.imgur.com/jcvtIzn.png) - kit_you_out
 
 -  [**Kliff**](https://i.imgur.com/y20b8wm.png) - BlueIsForPlayers
 
@@ -7236,6 +7242,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**87**](https://i.imgur.com/27lXvel.png) - mcoyne12
       
       -  [**88**](https://i.imgur.com/9LKSpsf.jpg) - ShadowNightmare1312
+      
+      -  [**89**](https://i.imgur.com/RqDYsVV.png) - kit_you_out
 
 -  [**Nino (SF)**](https://cdn.discordapp.com/attachments/312889387631509514/454581030603587587/Screenshot_2018-06-08-19-42-08_com.nintendo.zaba.png) - rowcla
 
