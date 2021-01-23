@@ -8862,6 +8862,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://imgur.com/a/CWFOBCR) - AnotherKrn
 
       -  [**5**](https://i.imgur.com/XwW1sR5.jpg) - minkus1000
+      
+      -  [**6**](https://cdn.discordapp.com/attachments/601366271384354826/801111846266208286/Screenshot_20210119-103149.png) - ShanoaSSB
 
 -  [**Sakura (HS)**](https://imgur.com/73B6vrc) - ImoutoLord
 
