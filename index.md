@@ -4955,6 +4955,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/KAzYJWQ.jpg) - MetaTriforce
       
+-  [**Knoll**](https://i.imgur.com/ctllIzM.png) - kieku1
+      
 -  [**Kris (M)**](https://i.imgur.com/I1FC2aQ.jpg) - Nyaoka
 
       -  [**2**](https://i.imgur.com/nVo17hM.jpg) - InfiniteLoop0
