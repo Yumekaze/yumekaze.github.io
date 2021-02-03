@@ -6487,7 +6487,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/PipWzW6.jpg) - RoseCelebi
       
-      -  [**9**](https://i.imgur.com/v2ISCGD.jpg) - Triials
+      -  [**9**](https://i.imgur.com/v2ISCGD.jpg) - Swible
       
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
