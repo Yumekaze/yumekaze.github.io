@@ -1980,6 +1980,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**57**](https://i.imgur.com/or7cvdu.jpg) - BoomToast
       
       -  [**58**](https://i.imgur.com/krhIC8g.jpg) - DoveCannon
+      
+      -  [**59**](https://i.imgur.com/K7FZTAa.jpg) - Triials
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -2396,6 +2398,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/RH793Zv.png) - Gliscens
       
       -  [**5**](https://i.imgur.com/1HWyCq0.jpg) - TiltControls
+      
+      -  [**6**](https://i.ibb.co/9ysFzKg/6-FB88-F2-B-36-B9-49-EE-B8-C3-0-BC934-CD050-C.png) - ShadowMario8
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
@@ -2905,7 +2909,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**14**](https://i.imgur.com/jqw7C2A.jpg) - BlackjackLeggo
       
-      -  [**15**](https://i.imgur.com/FXbKghN.jpg) - Camping_Noob
+      -  [**15**](https://i.imgur.com/b907d1h.jpg) - Camping_Noob
 
 -  [**Elincia (Festival in Hoshido)**](https://imgur.com/BMrQgMn) - dirtysmall
 
@@ -3966,6 +3970,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/wuBo71f.jpg) - Metroplex7
       
       -  [**3**](https://i.imgur.com/q9vagfc.jpg) - theprodigy64
+      
+      -  [**4**](https://i.ibb.co/R6pDJKF/10-EB05-DC-7634-4279-8-E2-C-79-CAFBAEEFC7.png) - ShadowMario8
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -6481,6 +6487,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/PipWzW6.jpg) - RoseCelebi
       
+      -  [**9**](https://i.imgur.com/v2ISCGD.jpg) - Triials
+      
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
 -  [**Merric**](http://i.imgur.com/87VCHry.png) - exxit5408
@@ -7478,6 +7486,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**86**](https://i.imgur.com/3OvsnLk.png) - Phanngle
       
       -  [**87**](https://i.imgur.com/aQZWZYG.jpg) - LinkaFlame
+      
+      -  [**88**](https://i.imgur.com/pUHjguk.jpg) - Triials
 
 -  [**Nowi (Halloween)**](https://i.imgur.com/i54tVwr.png) - exxit5408
 
@@ -7869,6 +7879,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Petrine**](https://i.imgur.com/hxUfAf0.jpg) - Blizzardthree
 
+      -  [**2**](https://i.imgur.com/UvtRLm0.jpg) - Triials
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -7922,6 +7934,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/7q5mzvG.jpg) - alexclow
       
       -  [**4**](https://i.imgur.com/A6D6p76.jpg) - JdiJwa
+      
+      -  [**5**](https://i.imgur.com/op620PW.jpg) - Triials
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
 
@@ -9591,7 +9605,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**44**](https://i.imgur.com/jAFXynG.jpg) - eggplantbear
 
-      -  [**45**](https://i.imgur.com/tFO9QVq.jpg) - Triials
+      -  [**45**](https://i.imgur.com/TzlOuwM.jpg) - Triials
 
       -  [**46**](https://imgur.com/a/KWjuBo4) - hercules-rockefeller
 
