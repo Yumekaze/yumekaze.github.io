@@ -298,6 +298,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/OkAwsHR.jpg) - reshprince
       
       -  [**12**](https://i.imgur.com/AOJ6WJF.jpg) - MageFighter687
+      
+      -  [**13**](https://i.imgur.com/kqGHoNt.jpg) - Stalkos
 
 -  [**Athena**](http://i.imgur.com/6Tww9cB.png) - exxit5408
 
@@ -820,6 +822,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/pK0VXVb.jpg) - souicune
       
       -  [**8**](https://i.imgur.com/TwUEEIB.jpg) - Aromantic_Benzene
+      
+      -  [**9**](https://i.imgur.com/BnWWVEn.jpg) - Stalkos
       
 -  [**Bramimond**](https://i.imgur.com/BiaF9WQ.jpg) - SuitandTyrogue1
 
@@ -1472,6 +1476,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**4**](https://i.imgur.com/Sml4upH.jpg) - ShiningEmblem
      
      -  [**5**](https://i.imgur.com/KhPZntq.png) - ShadowMLuigi
+     
+     -  [**6**](https://i.imgur.com/EgUANTk.png) - Estebest
 
 -  [**Chad**](https://i.imgur.com/seOi0Kw.jpg) - JdiJwa
 
@@ -2024,6 +2030,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/uhTM8LX.jpg) - SuitandTyrogue1
       
       -  [**10**](https://i.imgur.com/dvrjugL.png) - Navaldeus
+      
+      -  [**11**](https://i.imgur.com/OqNoL8J.jpg) - Stalkos
 
 -  [**Corrin (F)**](https://i.imgur.com/U3iUou6.png) - MrNinja1234
 
@@ -2460,6 +2468,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/jJSq6UT.png) - jaesuk97
 
       -  [**5**](https://i.imgur.com/IMM3aMk.jpg) - darkmages4lyfe
+      
+      -  [**6**](https://i.imgur.com/ZCnx7D4.jpg) - Stalkos
 
 -  [**Dorcas (Halloween)**](https://i.imgur.com/BE1WzaH.jpg) - RiskehVIII
 
@@ -2572,6 +2582,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/5at8MY1.jpg) - Menetone
       
       -  [**6**](https://i.imgur.com/FiXWniY.jpg) - DoveCannon
+      
+      -  [**7**](https://i.imgur.com/bb1JhV6.png) - Estebest
 
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
@@ -3062,6 +3074,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/5vhmnjf.jpg) - Rabbytt
       
       -  [**3**](https://i.imgur.com/h0o4AJa.jpg) - theprodigy64
+      
+      -  [**4**](https://i.imgur.com/YCyEL7B.png) - Estebest
 
 -  [**Ephraim**](https://i.imgur.com/Ht77dBa.png) - equiNine
 
@@ -4166,6 +4180,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/WE0WHY9.jpeg) - zSolaris
       
       -  [**3**](https://i.imgur.com/jqQySqO.png) - ShadowMLuigi
+      
+      -  [**4**](https://i.imgur.com/fAaE70V.png) - Estebest
 
 -  [**Hinata**](https://i.imgur.com/k0zqlK8.jpg) - lazygreenfox 
 
@@ -4810,6 +4826,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/ZXY9Wxh.png) - Phanngle
       
       -  [**13**](https://i.postimg.cc/MHY98PQx/E420-A151-2-BF7-423-E-AABA-F7-AE1-BB79-A03.png) - JCW18
+      
+      -  [**14**](https://i.imgur.com/l5FWlm4.jpg) - Stalkos
 
 -  [**Karel**](http://i.imgur.com/FlxFYMt.png) - exxit5408
 
@@ -5296,6 +5314,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Legion**](https://i.imgur.com/iRbPlmn.jpg) - hiimlykos
 
       -  [**2**](https://i.imgur.com/H1AR05Y.jpg) - SeoBelmont
+      
+      -  [**3**](https://i.imgur.com/EiHJ68x.jpg) - Stalkos
 
 -  [**Leif**](https://i.imgur.com/KZnmJEk.jpg) - october_5
 
@@ -6716,6 +6736,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://preview.redd.it/2s5xooy6t7q51.png?width=480&auto=webp&s=33658054516066829b9571aef8285622fd88852f) - GeorgeRivera777
       
       -  [**11**](https://i.imgur.com/XpBHINq.jpg) - SuddenJami
+      
+      -  [**12**](https://i.imgur.com/rzhu8ig.jpg) - Stalkos
 
 -  [**Morgan (F)**](https://i.imgur.com/9NYwe1p.png) - Jazzswipe
 
@@ -8648,6 +8670,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/UfhkAPi.jpg) - SuitandTyrogue1
       
       -  [**17**](https://i.imgur.com/h8v0tRx.png) - Navaldeus
+      
+      -  [**18**](https://i.imgur.com/wlmIuBe.png) - Estebest
 
 -  [**Roy**](http://i.imgur.com/pF2ulgO.png) - exxit5408
 
@@ -9140,6 +9164,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**19**](https://i.imgur.com/w4EqnqC.jpg) - FearDubh
       
       -  [**20**](https://i.imgur.com/rxgcqiW.jpg) - Tapo11
+      
+      -  [**21**](https://i.imgur.com/7Y2Bq7H.jpg) - Stalkos
       
 -  [**Seteth**](https://i.imgur.com/dPRsIqq.jpg) - JdiJwa
 
