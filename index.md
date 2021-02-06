@@ -75,6 +75,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      
      -  [**11**](https://i.imgur.com/pir8w4L.jpg) - Faithispower
      
+     -  [**12**](https://i.imgur.com/7pSafvi.jpg) - JdiJwa
+     
 -  [**Alm (Brave)**](https://i.imgur.com/2Phr77f.png) - 0blivionknight
 
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
@@ -1844,6 +1846,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/6HK89fm.jpg) - alexclow
       
       -  [**3**](https://i.imgur.com/4Nn7BPS.jpeg) - dyeitblonde
+      
+      -  [**4**](https://i.imgur.com/SEeGrci.jpg) - JdiJwa
 
 -  [**Clive**](https://cdn.discordapp.com/attachments/536758779971239947/577859888395583509/Screenshot_20190514-100814.png) - roy2king
 
@@ -2470,6 +2474,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/IMM3aMk.jpg) - darkmages4lyfe
       
       -  [**6**](https://i.imgur.com/ZCnx7D4.jpg) - Stalkos
+      
+      -  [**7**](https://i.imgur.com/lyKYu90.jpg) - JdiJwa
 
 -  [**Dorcas (Halloween)**](https://i.imgur.com/BE1WzaH.jpg) - RiskehVIII
 
@@ -2526,6 +2532,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/jL7lwWA.jpg) - chiropterakee
 
       -  [**3**](https://i.imgur.com/HX9db2F.png) - Brinzy
+      
+      -  [**4**](https://i.imgur.com/86ljZVV.jpg) - JdiJwa
 
 -  [**Echidna**](https://i.imgur.com/pf9PMcU.jpg) - Blizzardthree
 
@@ -7797,6 +7805,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Osian**](https://i.imgur.com/FmMYGMA.jpg) - Xuanwu7
 
+      -  [**2**](https://i.imgur.com/iNfSCk4.jpg) - JdiJwa
+
 -  [**Owain**](https://i.imgur.com/huGcecz.png) - AchingBlood0623
 
       -  [**2**](https://i.imgur.com/cx7enZC.png) - MegaBanettes
@@ -7988,6 +7998,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/op620PW.jpg) - Triials
 
 -  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
+
+      -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
+
+-  [**Raphael (Plegian)**](https://i.imgur.com/X44t7mH.jpg) - JdiJwa
 
 -  [**Rafiel (Groom)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
 
@@ -8636,6 +8650,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Rolf**](https://i.imgur.com/LIs7VDc.jpg) - damagereducer
 
       -  [**2**](https://i.postimg.cc/7hPgSx58/B0-F41-DCB-57-D6-4-E28-8572-894-E383-CBEE1.png) - JCW18
+      
+-  [**Ronan**](https://i.imgur.com/3LLjvuC.jpg) - JdiJwa
 
 -  [**Ross**](https://i.imgur.com/7ve6XSZ.jpg) - Belligero_
 
