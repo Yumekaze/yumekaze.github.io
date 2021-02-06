@@ -5598,6 +5598,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/xnCg7fN.jpg) - souicune
       
       -  [**7**](https://i.imgur.com/ScrsveV.png) - WhalesOnStrike
+      
+      -  [**8**](https://i.imgur.com/leUoulW.jpg) - Akkeyem
 
 -  [**Lissa**](https://i.imgur.com/obFFKcU.jpg) - MegaBanettes 
 
@@ -6598,6 +6600,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/p1BxPtU.jpg) - BlackjackLeggo
       
 -  [**Mia + Marth (Summer)**](https://preview.redd.it/nwqtfgjezu551.jpg?width=375&auto=webp&s=54d8904a27034f89e4effd7aba43a8d803f0aca6) - Paiguy7
+
+      -  [**2**](https://i.imgur.com/udAMcmT.png) - icydragon0605
 
 -  [**Micaiah**](https://i.imgur.com/x9aEJmU.jpg) - iamdarthyoshi
 
@@ -10304,6 +10308,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/shyNDR6.jpg) - go4ino
       
       -  [**9**](https://i.imgur.com/2YrXihH.jpg) - RoseCelebi
+      
+      -  [**10**](https://i.imgur.com/2qA7KzL.png) - icydragon0605
 				
 -  [**Tharja**](https://i.imgur.com/Ng7vaz6.png) - kris12k4
 
