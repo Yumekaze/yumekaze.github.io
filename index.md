@@ -450,6 +450,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/KD3Mhvs.jpg) - IRSkyclaw
       
       -  [**9**](https://i.imgur.com/1wDZUua.png) - minno
+      
+      -  [**10**](https://i.imgur.com/pQE8izU.jpg) - F4ST_M4ST3R
 
 -  [**Azura**](https://i.imgur.com/iIMMBPp.png) - exxit5408
 
@@ -1334,10 +1336,14 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**41**](https://i.imgur.com/K3sXZON.png) - BlazeBloom
       
       -  [**42**](https://i.imgur.com/FpWikL6.jpg) - Caty409
+      
+      -  [**43**](https://i.imgur.com/XLEmMMT.png) - Zerosiz
 
 -  [**Catria (Hares at the Fair)**](https://i.imgur.com/x7082oQ.png) - nosefera2
 
       -  [**2**](https://i.imgur.com/xXAIZaA.jpg) - PM_ME_YOUR_WHALE
+      
+      -  [**3**](https://i.imgur.com/WjcMMGA.png) - Zerosiz
 
 -  [**Cecilia**](https://i.imgur.com/Hy9uEzP.png) - Lucille_FE
 
@@ -2905,6 +2911,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Eldigan (Soiree)**](https://i.imgur.com/ryerIBK.png) - Z-tune
 
+-  [**Eleonora**](https://i.imgur.com/4SCIBVQ.jpg) - Diligent_Slacker
+
 -  [**Elincia**](https://i.imgur.com/DQAJAVt.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/2fqwsKw.png) - PkPhreak_official
@@ -4000,6 +4008,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/q9vagfc.jpg) - theprodigy64
       
       -  [**4**](https://i.ibb.co/R6pDJKF/10-EB05-DC-7634-4279-8-E2-C-79-CAFBAEEFC7.png) - ShadowMario8
+      
+      -  [**5**](https://i.imgur.com/vBd9R3P.png) - Zerosiz
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -4870,6 +4880,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://cdn.discordapp.com/attachments/449438879351832586/739282371051782264/Screenshot_20200801-174016.png) - NougatFromOrbit
       
       -  [**7**](https://i.redd.it/t67pmis5oa641.jpg) - szilard
+      
+      -  [**8**](https://i.imgur.com/KajoPnS.png) - Zerosiz
 
 -  [**Kaze**](https://i.imgur.com/G8JmdVb.jpg) - dotyawning
      
@@ -5600,6 +5612,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/ScrsveV.png) - WhalesOnStrike
       
       -  [**8**](https://i.imgur.com/leUoulW.jpg) - Akkeyem
+      
+      -  [**9**](https://i.imgur.com/b4jm9nc.jpg) - tflo242
 
 -  [**Lissa**](https://i.imgur.com/obFFKcU.jpg) - MegaBanettes 
 
@@ -6144,6 +6158,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/y9cV149.jpg) - Totsutei
       
 -  [**Mareeta**](https://i.imgur.com/kPzF2JZ.png) - Lainon
+
+      -  [**2**](https://i.imgur.com/FTx1n4I.png) - Zerosiz
 
 -  [**Mareeta (Fallen)**](https://imgur.com/a/Z78R1MF) - mylonas5
 
@@ -7991,6 +8007,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**20**](https://i.imgur.com/WZCehh9.jpg) - baeda2
       
+      -  [**21**](https://i.imgur.com/7rEf8FJ.png) - Zerosiz
+      
 -  [**Python**](https://i.imgur.com/LtwOA6C.jpg) - Ellie_0_o
 
       -  [**2**](https://i.imgur.com/WAlyyGM.jpg) - Daveguy11
@@ -9557,6 +9575,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Silque (Valentine's)**](https://i.imgur.com/ZzrgX0e.png) - BlazeBloom
 
+      -  [**2**](https://i.imgur.com/mtWudY5.png) - Zerosiz
+
 -  [**Silvia**](https://i.imgur.com/iQoKseP.jpg) - mothmanex
 
       -  [**2**](https://i.imgur.com/IONdGvF.png) - SobriK
@@ -9986,6 +10006,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/nfWmAPy.jpg) - secret_julius
       
       -  [**29**](https://i.imgur.com/G0XMnNf.jpg) - LinkaFlame
+      
+      -  [**30**](https://i.imgur.com/f5OLFZx.png) - Zerosiz
 
 -  [**Sothis**](https://i.imgur.com/dprHVLG.jpg) - Rabbytt
 
@@ -10818,6 +10840,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/h4AmqIB.png) - Pit_Solitayrh
 
       -  [**3**](https://i.imgur.com/IwZZgcS.jpg) - FearDubh
+      
+      -  [**4**](https://i.imgur.com/ClVPCjF.jpg) - F4ST_M4ST3R
       
 -  [**Travant**](https://i.imgur.com/c9TTdfP.jpg) - booleanHipster
 
