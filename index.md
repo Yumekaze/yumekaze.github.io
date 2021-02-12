@@ -326,6 +326,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/4PlD1jk.jpg) - umarekawari
       
       -  [**12**](https://i.imgur.com/4OvzpAR.jpg) - averagearti
+      
+      -  [**13**](https://i.imgur.com/KmP3VnD.jpg) - 
 
 -  [**Aversa**](https://imgur.com/gallery/nlyRDHF) - LucinaTheExalt
 
@@ -540,6 +542,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/UOvpjkU.png) - Bored5437
+      
+      -  [**3**](https://i.imgur.com/VLvEdU6.jpg) - Zerimar_
 
 -  [**Barst**](https://i.redditmedia.com/HoJ1nMbhe3GA9MtYXIPZjWmb-miuXN_sd43Y3Ev5FZE.png?w=431&s=af497f3a726b41d68f936451cc8f6865) - BarstMain
 
@@ -560,6 +564,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/kra8XTr.jpg) - FullFrontalAnal
 
       -  [**10**](https://i.imgur.com/aS1nIaR.jpg) - InfiniteLoop0
+      
+      -  [**11**](https://i.imgur.com/IFJxTcr.jpg) - Zerimar_
 
 -  [**Bartre**](https://cdn.discordapp.com/attachments/285145120037404673/377331559469940737/image.png) - Eirikafeh
 
@@ -3662,6 +3668,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://cdn.discordapp.com/attachments/291701550022393857/667622611282558986/image0.png) - LittleIslander
       
       -  [**14**](https://imgur.com/a/HTxscOJ) - SorcererHex
+      
+      -  [**15**](https://i.imgur.com/YGPON02.jpg) - Zerimar_
 
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
@@ -3924,6 +3932,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**31**](https://i.imgur.com/Cecp1Wj.jpg) - Ant1ng
       
       -  [**32**](https://i.imgur.com/M0jnl6k.png) - LaiLiPing
+      
+      -  [**33**](https://i.imgur.com/G3oNDWB.jpg) - Zerimar_
 
 -  [**Haar**](https://i.imgur.com/uj2lRTq.png) - Nazh2206
 
@@ -3940,6 +3950,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/t9zKkfx.jpg) - SaileVonRiegan
       
       -  [**8**](https://i.imgur.com/ymmaMkR.jpg) - Tapo11
+      
+      -  [**9**](https://i.imgur.com/xePNAYO.jpg) - Zerimar_
 
 -  [**Hana**](https://i.imgur.com/jXgiidV.png) - DNewWin 
 
@@ -4126,6 +4138,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/kk18Bvx.jpg) - PegaponyPrince
       
       -  [**9**](https://i.imgur.com/4iecY2v.jpg) - DoveCannon
+      
+      -  [**10**](https://i.imgur.com/wPfgiIS.jpg) - Zerimar_
 
 -  [**Hector + Lilina (Halloween)**](https://i.imgur.com/0EF13TO.jpg) - yulanan
 
@@ -4936,6 +4950,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/qXxxKj3.png) - EpicRome23
       
       -  [**7**](https://i.imgur.com/IElWzYY.png) - FairyMMM
+      
+      -  [**8**](https://i.imgur.com/vR1bJZn.jpg) - Zerimar_
 
 -  [**Kiria**](https://i.imgur.com/arLmeWz.jpg) - Belligero_
 
@@ -5744,7 +5760,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/sW0CBG3.png) - Haleyrin
 
       -  [**6**](https://i.imgur.com/64AVj6d.png) - Joltian3
-
+	
       -  [**7**](https://i.imgur.com/4S8rXXG.jpg) - jaesuk97
 
       -  [**8**](https://i.imgur.com/p4nVmQ1.png) - GoldGoomba
@@ -6737,6 +6753,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/0lHxoOX.png) - FairyMMM
       
+      -  [**5**](https://i.imgur.com/GU2CzlQ.jpg) - HellaHotLancelot
+      
 -  [**Miranda**](https://i.imgur.com/1fkaA1t.jpg) - chaosangel
 
 -  [**Mist**](https://i.imgur.com/lkKDkfF.png) - YorozuyaTrio
@@ -6766,6 +6784,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/XpBHINq.jpg) - SuddenJami
       
       -  [**12**](https://i.imgur.com/rzhu8ig.jpg) - Stalkos
+      
+      -  [**13**](https://i.imgur.com/iIUQMDM.jpg) - Zerimar_
 
 -  [**Morgan (F)**](https://i.imgur.com/9NYwe1p.png) - Jazzswipe
 
@@ -7678,6 +7698,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/YJAXZXh.jpg) - FullFrontalAnal
       
       -  [**4**](https://i.imgur.com/JeTx1sP.png) - sissac_nouise
+      
+      -  [**5**](https://i.imgur.com/yCvJIws.jpg) - Zerimar_
 
 -  [**Oliver**](https://i.imgur.com/4fIlszV.jpg) - Pumplard
 
@@ -8024,6 +8046,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
 
 -  [**Raphael (Plegian)**](https://i.imgur.com/X44t7mH.jpg) - JdiJwa
+
+      -  [**2**](https://i.imgur.com/RGbgBt5.jpg) - Zerimar_
 
 -  [**Rafiel (Groom)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
 
@@ -9446,6 +9470,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**49**](https://i.imgur.com/5k76HLr.jpg) - MageFighter687
       
       -  [**50**](https://i.imgur.com/7h2q2ib.jpg) - souicune
+      
+      -  [**51**](https://i.imgur.com/j1cmEWf.jpg) - Zerimar_
 
 -  [**Shigure (Performing)**](https://i.imgur.com/QP6fkg4.png) - exxit5408
 
@@ -9614,6 +9640,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/gziaZsW.jpg) - LinkaFlame
       
       -  [**19**](https://i.imgur.com/3fU2Tpq.png) - secret_julius
+      
+      -  [**20**](https://i.imgur.com/HDBZd4H.jpg) - Zerimar_
 
 -  [**Sirius**](https://i.imgur.com/yrwIbE0.jpg) - Shuyomi
 
@@ -9942,6 +9970,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**56**](https://i.imgur.com/3QXAkfK.png) - Kuina
       
       -  [**57**](https://i.imgur.com/2Gz5rYx.jpg) - 1breadstick
+      
+      -  [**58**](https://i.imgur.com/eypzDa1.jpg) - Zerimar_
 
 -  [**Soren (Greil's Devoted)**](https://cdn.discordapp.com/attachments/380482610683707395/544155650855534623/image0.png) - star-light-trip
 
@@ -10216,6 +10246,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**31**](https://i.imgur.com/YtlSxc9.png) - NightmareShane
       
       -  [**32**](https://i.imgur.com/Ew24xSV.jpg) - RoseCelebi
+      
+      -  [**33**](https://i.imgur.com/erYXlaW.jpg) - HellaHotLancelot
 
 -  [**Takumi**](http://i.imgur.com/XoX7I6h.png) - exxit5408	
 
@@ -10858,6 +10890,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/QkGQG2g.png) - Ganadote
       
       -  [**3**](https://i.imgur.com/l9GFpEP.jpg) - Sonicwisp21
+      
+      -  [**4**](https://i.imgur.com/sFGHszf.jpg) - Zerimar_
 
 -  [**Valbar**](https://i.imgur.com/OapvGnc.jpg) - MetaTriforce
 
@@ -11076,6 +11110,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/isfxKzB.png) - DurgenTheFirst
       
       -  [**15**](https://i.imgur.com/P8eVNVb.jpg) - SuitandTyrogue1
+      
+      -  [**16**](https://i.imgur.com/yeU4k7W.jpg) - Zerimar_
       
 -  [**Zihark (Ninja)**](https://i.imgur.com/QNw6pVk.jpg) - Tapo11
 
