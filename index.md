@@ -234,6 +234,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**35**](https://i.imgur.com/b96jy4C.png) - NightmareShane
       
       -  [**36**](https://i.imgur.com/xJL52bg.jpg) - LinkaFlame
+      
+      -  [**37**](https://i.imgur.com/awI6Ruc.png) - Darth-Not-Palpatine
 
 -  [**Arthur**](https://i.imgur.com/uBX7Fso.png) - KingJoshu
 
@@ -764,6 +766,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/CnvVfgr.png) - EpicRome23
       
       -  [**25**](https://i.imgur.com/6ZYotXX.jpg) - DoveCannon
+      
+      -  [**26**](https://i.imgur.com/UfXirgy.png) - Darth-Not-Palpatine
 
 -  [**Boey**](http://i.imgur.com/Mwx23oB.png) - exxit5408
 
@@ -858,6 +862,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/fvqnClL.jpg) - Fehinaction
       
       -  [**11**](https://i.imgur.com/s8qp08W.jpg) - RestlessRoman
+      
+      -  [**12**](https://i.imgur.com/7l0Gr5l.png) - Darth-Not-Palpatine
 
 -  [**Byleth (F)**](https://i.imgur.com/kS7vxnJ.jpg) - cocacolafart
 
@@ -945,7 +951,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**34**](https://imgur.com/gallery/kuNy7Cx) - bnm333
 
-      -  [**35**](https://preview.redd.it/1awvna96hsf31.jpg?width=432&auto=webp&s=ff066eb19634e1ef266b7d9283eec9813a8bf6e5)  - NightmareShane
+      -  [**35**](https://preview.redd.it/1awvna96hsf31.jpg?width=432&auto=webp&s=ff066eb19634e1ef266b7d9283eec9813a8bf6e5)  - NightmAhane
 
       -  [**36**](https://i.imgur.com/8asG9Ja.jpg) - DarkJara
 
@@ -1492,6 +1498,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**5**](https://i.imgur.com/KhPZntq.png) - ShadowMLuigi
      
      -  [**6**](https://i.imgur.com/EgUANTk.png) - Estebest
+     
+     -  [**7**](https://i.imgur.com/wwT2U3v.jpg) - Kn0XIS
 
 -  [**Chad**](https://i.imgur.com/seOi0Kw.jpg) - JdiJwa
 
@@ -2915,6 +2923,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/3wA3VtN.jpg) - FearDubh
       
+      -  [**10**](https://i.imgur.com/wRgd9sG.jpg) - Xuanwu7
+      
 -  [**Eldigan (Soiree)**](https://i.imgur.com/ryerIBK.png) - Z-tune
 
 -  [**Eleonora**](https://i.imgur.com/4SCIBVQ.jpg) - Diligent_Slacker
@@ -3050,6 +3060,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**42**](https://preview.redd.it/xl4xksiuw2461.png?width=1080&format=png&auto=webp&s=7c3733574e998bf6f66f0c951fb508d56bf0b838) - justinator119
       
       -  [**43**](https://i.imgur.com/JFxUjXX.jpg) - SuitandTyrogue1
+      
+      -  [**44**](https://i.imgur.com/hwMHR02.png) - Darth-Not-Palpatine
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
@@ -6859,6 +6871,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**29**](https://i.imgur.com/YW6hVjb.jpg) - RoseCelebi
       
+      -  [**30**](https://i.imgur.com/3sf48TL.png) - Darth-Not-Palpatine
+      
 -  [**Mustafa**](https://i.imgur.com/NwDIFaD.jpg) - Tollomer
 
 -  [**Myrrh**](https://i.imgur.com/9UudlgD.jpg) - platinummemer
@@ -8041,7 +8055,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/op620PW.jpg) - Triials
 
--  [**Quan**](https://i.imgur.com/5eXSbfA.png) - Xuanwu7
+-  [**Quan**](https://i.imgur.com/NSytHgJ.jpg) - Xuanwu7
 
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
 
@@ -9575,7 +9589,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://imgur.com/gallery/YwNi5Gl) - FearDubh
 
-      -  [**8**](https://i.imgur.com/V6oLRSu.png) - Xuanwu7
+      -  [**8**](https://i.imgur.com/ZGWq6n8.jpg) - Xuanwu7
 
       -  [**9**](https://cdn.discordapp.com/attachments/548002260643479567/551137097877291008/Screenshot_2019-03-02-07-16-11.png) - minatoapologist
 
@@ -9790,6 +9804,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**70**](https://i.imgur.com/WX8vwwh.jpg) - DoveCannon
       
       -  [**71**](https://i.imgur.com/4oMd2pf.jpg) - Caty409
+      
+      -  [**72**](https://i.imgur.com/3d3EHj9.png) - Darth-Not-Palpatine
 
 -  [**Sonya**](https://i.imgur.com/aNmXrYF.png) - FordFB67
 
