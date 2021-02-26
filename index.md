@@ -276,6 +276,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/Y9I3CaR.png) - secret_julius
       
       -  [**11**](https://i.imgur.com/7P6mZzS.jpg) - MageFighter687
+
+-  [**Asbel**](https://i.imgur.com/dDv1f5l.jpg) - ReclusiveBoatGuy
       
 -  [**Ashnard**](https://i.imgur.com/pivvvoH.jpg) - Valsyar
 
@@ -11034,6 +11036,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Velouria**](https://i.imgur.com/w7CmDTz.jpg) - suicidal-ghost
 
       -  [**2**](https://i.imgur.com/jDuFTlL.jpg) - MrTurais
+
+-  [**Velouria (New Year's)**](https://i.imgur.com/44djXz0.png) - TiniestManatee
 
 -  [**Veronica**](https://imgur.com/a/XfKVYV4) - ShinzoFTW
 
