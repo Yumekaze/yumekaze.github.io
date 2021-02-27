@@ -5439,6 +5439,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       - [**5**](https://i.imgur.com/ShMYLMh.jpg) - SuitandTyrogue1
 
+      - [**6**](https://cdn.discordapp.com/attachments/713790993849385002/815004990162468905/Screenshot_20210227_073139.jpg) - ukantor
+
 -  [**Leila**](https://i.imgur.com/JwhYgHd.png) - zoolan
 
       - [**2**](https://i.imgur.com/NDoAgYb.jpg) - Menetone
@@ -6801,6 +6803,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/DextOe6.jpg) - Rabbytt
 
+      -  [**3**](https://cdn.discordapp.com/attachments/713790993849385002/815003709653647360/Screenshot_20210227_073150.jpg) - ukantor
+
 -  [**Minerva**](https://i.imgur.com/FpqA7ih.png) - equiNine
 
       -  [**2**]( http://i.imgur.com/pjS08hI.png) - exxit5408
@@ -8124,6 +8128,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/A6D6p76.jpg) - JdiJwa
       
       -  [**5**](https://i.imgur.com/op620PW.jpg) - Triials
+
+      -  [**6**](https://cdn.discordapp.com/attachments/713790993849385002/811157145131024432/Screenshot_20210216_164504.jpg) - ukantor
 
 -  [**Quan**](https://i.imgur.com/NSytHgJ.jpg) - Xuanwu7
 
