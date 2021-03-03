@@ -97,6 +97,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      
      -  [**6**](https://i.imgur.com/ndrJplI.png) - kit_you_out
 
+     -  [**7**](https://i.imgur.com/mlpTNNk.png) - Skybeat8
+
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
      -  [**2**](https://i.imgur.com/0Upb1B5.png) - AnkouDusk
@@ -240,6 +242,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/awI6Ruc.png) - Darth-Not-Palpatine
 
       -  [**38**](https://i.imgur.com/lPX5Pe8.png) - af-fx-tion
+
+      -  [**39**](https://i.imgur.com/k4MOsOe.png) - Skybeat8
 
 -  [**Arthur**](https://i.imgur.com/uBX7Fso.png) - KingJoshu
 
@@ -826,6 +830,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**25**](https://lh3.googleusercontent.com/pw/ACtC-3e3vFq_PFm-QdK-_m73W9JGhCYbf8viiYXQc1yFmnJqQsdPNhjfUF1n9KNiv14h0G5MPWxbFS2q9yeQXhHJGkf9CoakEwoH4eXHsDnufDC1l1OZAyTe8KYeloeplgyfKoAlJwp9uly11bS1KnjxBu85=w448-h943-no?authuser=0) - RedStar133
       
       -  [**26**](https://cdn.discordapp.com/attachments/786148813257441290/786148880546267166/Screenshot_20201209-032653_Fire_Emblem_Heroes.jpg) - Secretsword229
+
+      -  [**27**](https://i.imgur.com/MuF4oqJ.png) - Skybeat8
 
 -  [**Brady**](https://i.imgur.com/MNHRTq6.jpg) - ThatKoolKidOverThere
 
@@ -4239,6 +4245,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**15**](https://i.imgur.com/q3ZvJGu.png) - kit_you_out
 
+      -  [**16**](https://i.imgur.com/tCEtSy4.png) - Skybeat8
+
 -  [**Henry (Halloween)**](https://i.imgur.com/i9yg7Az.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/ZG9aqFf.png) - jaesuk97
@@ -4262,6 +4270,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/fAaE70V.png) - Estebest
       
       -  [**5**](https://i.imgur.com/DFCNA6w.jpg) - Ghotistyx_
+
+      -  [**6**](https://i.imgur.com/BMoIKni.png) - stephenthatfoste
 
 -  [**Hinata**](https://i.imgur.com/k0zqlK8.jpg) - lazygreenfox 
 
@@ -4292,6 +4302,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/tIrZ4Lr.jpg) - JdiJwa
       
       -  [**4**](https://i.imgur.com/1fWgo7N.png) - ShadowMLuigi
+
+      -  [**5**](https://i.imgur.com/JNzkqQz.png) - Skybeat8
 
 -  [**Hinoka**](http://i.imgur.com/azDTyXe.png) - exxit5408
 
@@ -4642,6 +4654,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/kgHG9W8.jpg) - Jagoslaw
       
       -  [**9**](https://i.imgur.com/SzufPmd.png) - X-pert74
+
+      -  [**10**](https://i.imgur.com/Y2p3Rhv.png) - Skybeat8
 
 -  [**Jeorge**](https://i.imgur.com/jaAL2D6.png) - Kintuse 
 
@@ -4995,6 +5009,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**20**](https://i.imgur.com/B2wlzrR.png) - Katerpu
 
+      -  [**21**](https://i.imgur.com/IGhjsDt.png) - Skybeat8
+
 -  [**Keaton**](https://i.imgur.com/xUTq09T.png) - Kaleochu
 
 -  [**Keaton (New Year's)**](https://i.imgur.com/929zbUf.jpg) - SiilentCry
@@ -5303,6 +5319,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://imgur.com/a/9YYm09l) - SorcererHex
 
+      -  [**5**](https://i.imgur.com/tMtmDAH.png) - stephenthatfoste
+
 -  [**Laegjarn (Summer)**](https://i.imgur.com/yWErDoE.jpg) - Kami-San
 
       -  [**2**](https://i.imgur.com/i2uSFKM.png) - HeavenlySeraph
@@ -5523,6 +5541,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/nzPZZ3S.jpg) - YuvonGrohiik
 
+-  [**Lex**](https://i.imgur.com/QsYhHGD.png) - Skybeat8
+
 -  [**Libra**](https://imgur.com/pv0CGMm) - LarkNL
 
       -  [**2**](https://i.imgur.com/TsIXOq4.jpg) - alphthedeer
@@ -5740,6 +5760,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/HNZ57q7.jpg) - zSolaris
 
       -  [**6**](https://i.imgur.com/16gPcoG.jpg) - MetaTriforce
+
+      -  [**7**](https://i.imgur.com/2BsVMMT.png) - Skybeat8
 
 -  [**Lloyd**](https://i.imgur.com/56Qfw79.jpg) - Xysticion
 
@@ -8667,6 +8689,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**48**](https://i.imgur.com/jIxEN75.jpg) - BoomToast
 
+      -  [**49**](https://i.imgur.com/wFKzo2g.png) - Skybeat8
+
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/CRkvsIb.jpg) - jaesuk97
@@ -9011,6 +9035,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/YkqRJEx.jpg) - Ghotistyx_
 
+      -  [**5**](https://i.imgur.com/sujBCFP.png) - Skybeat8
+
 -  [**Saizo**](https://i.imgur.com/LVVdjpk.jpg) - Floreau 
 
       -  [**2**](https://i.imgur.com/XFvcP0W.png) - Zeronity0
@@ -9272,6 +9298,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/hkOefTL.jpg) - Totsutei
       
       -  [**25**](https://i.imgur.com/wqd3gWW.png) - kit_you_out
+
+      -  [**26**](https://i.imgur.com/enuxHIh.png) - Skybeat8
       
 -  [**Seliph (Legendary)**](https://i.imgur.com/KqxRlfi.jpg) - roflwaffler
 
@@ -9973,6 +10001,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**26**](https://i.imgur.com/LHszXIt.jpg) - Ghotistyx_
 
+      -  [**27**](https://i.imgur.com/c9U4SHg.png) - Skybeat8
+
 -  [**Soren**](https://i.imgur.com/zw2zk6P.jpg) - star-light-trip
 
       -  [**2**](http://i.imgur.com/Mfn6A6g.png) - exxit5408
@@ -10302,6 +10332,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/Wd17Dvc.jpg) - Caty409
 
       -  [**11**](https://i.imgur.com/Frr9tqj.png) - af-fx-tion
+
+      -  [**12**](https://i.imgur.com/xiDOspe.png) - Skybeat8
 
 -  [**Tailtiu**](https://i.imgur.com/8JZ94bf.png) - Teh2chao2
 
