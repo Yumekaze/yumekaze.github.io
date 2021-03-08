@@ -557,7 +557,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
-      -  [**2**](https://i.imgur.com/UOvpjkU.png) - Bored5437
+      -  [**2**](https://i.imgur.com/doNbMFU.png) - Bored5437
       
       -  [**3**](https://i.imgur.com/VLvEdU6.jpg) - Zerimar_
 
@@ -1751,6 +1751,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**35**](https://i.imgur.com/DkPpj11.jpg) - BoomToast
 
+      -  [**36**](https://cdn.discordapp.com/attachments/345470672245489675/804357602133671966/Screenshot_2021-01-28-21-28-57-314_com.nintendo.zaba.jpg) - recarmloss
+
 -  [**Chrom (Spring)**](https://i.imgur.com/KjzYo0I.png) - Berk4823
 
       -  [**2**](https://i.imgur.com/pJG5lda.jpg) - ZephyrRC
@@ -2887,7 +2889,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**60**](https://i.imgur.com/ZSOcw8g.png) - af-fx-tion
       
-      -  [**61**](https://i.imgur.com/XAMOi3b.png) - Bored5437
+      -  [**61**](https://i.imgur.com/iank98B.png) - Bored5437
       
       -  [**62**](https://i.imgur.com/hvqCxWO.png)- X-pert74
       
@@ -2908,6 +2910,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**70**](https://i.imgur.com/sSPkE45.jpg) - RoseCelebi
       
       -  [**71**](https://cdn.discordapp.com/attachments/747297210613498216/799472094093246494/Screenshot_20210115-115244_Fire_Emblem_Heroes.jpg) - Dalewyn
+
+      -  [**72**](https://i.imgur.com/yQfEMp5.png) - jcp365
 
 -  [**Eirika (Sacred Memories)**](https://i.imgur.com/B8h5T63.jpg) - iamdarthyoshi
 
@@ -3682,6 +3686,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/HRJQaFI.png) - SuperSnivMatt
       
       -  [**10**](https://media.discordapp.net/attachments/673535121797939203/792895241098756096/image0.png) - KaiDoesStuff
+
+      -  [**11**](https://i.imgur.com/gjykB0b.png) - Bored5437
 
 -  [**Flora**](https://i.imgur.com/sdzuvdH.png) - EpicSquids
 
@@ -5589,6 +5595,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**17**](https://i.imgur.com/Gsh7dJ7.jpg) - BoomToast
 
+      -  [**18**](https://i.imgur.com/oDrD8R4.png) - Bored5437
+
 -  [**Lif**](https://i.imgur.com/saQVmsi.jpg) - chiropterakee
 
       -  [**2**](https://i.imgur.com/yAnT6kW.jpg) - LustrousDreams
@@ -6343,7 +6351,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/k0XXM42.jpg) - s07195
       
-      -  [**12**](https://i.imgur.com/Or99Pxc.jpg) - Phaaze13
+      -  [**12**](https://imgur.com/a/Ubqy4sk) - Phaaze13
 
 -  [**Marisa (Spring)**](https://i.imgur.com/DRvJGTf.png) - Thrasir37
 
@@ -6561,6 +6569,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**40**](https://cdn.discordapp.com/attachments/747297210613498216/799472793011879936/Screenshot_20210115-115301_Fire_Emblem_Heroes.jpg) - Dalewyn
 
+      -  [**41**](https://cdn.discordapp.com/attachments/345470672245489675/804357601357594674/Screenshot_2021-01-28-21-29-07-219_com.nintendo.zaba.jpg) - recarmloss
+
 -  [**Marth (Groom)**](https://i.imgur.com/1xq71pL.jpg) - vectorgram353
 
       -  [**2**](https://i.imgur.com/dAYQwK1.jpg) - PegaponyPrince
@@ -6606,6 +6616,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://preview.redd.it/plo5wxbuw2461.png?width=1080&format=png&auto=webp&s=a0a0433d461df01180f32196bb284a276cee3fda) - justinator119
       
       -  [**17**](https://i.imgur.com/k8HnTI5.png) - ShadowMLuigi
+
+      -  [**18**](https://i.imgur.com/MhGhsQJ.png) - jcp365
 
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
@@ -6961,7 +6973,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://i.imgur.com/Kl5o3lt.png) - Geeene
 
-      -  [**22**](https://cdn.discordapp.com/attachments/608836663778738179/692176680218787860/Screenshot_2020-03-25-08-02-47-657_com.nintendo.zaba.jpg) - recarmloss
+      -  [**22**](https://cdn.discordapp.com/attachments/345470672245489675/804357645762297876/Screenshot_2021-01-28-21-28-50-664_com.nintendo.zaba.jpg) - recarmloss
       
       -  [**23**](https://i.imgur.com/kUhgCZB.jpg) - WoomyX1000
       
@@ -7712,6 +7724,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**88**](https://i.imgur.com/pUHjguk.jpg) - Triials
 
       -  [**89**](https://i.ibb.co/g30WNLp/DD10-B0-F9-6-DA4-47-D5-B2-C9-46-E32592-AFE2.jpg) - NohrianScumbag
+
+      -  [**90**](https://cdn.discordapp.com/attachments/713790993849385002/815768841921495071/IMG_20210301_091314.jpg) - recarmloss
 
 -  [**Nowi (Halloween)**](https://i.imgur.com/i54tVwr.png) - exxit5408
 
@@ -8589,7 +8603,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**19**](https://i.imgur.com/Jrg4ZI5.jpg) - Dark-C
 
-     -  [**20**](https://cdn.discordapp.com/attachments/608826732719374336/674564606584422400/Screenshot_2020-02-05-17-30-55-633_com.nintendo.zaba.jpg) - recarmloss
+     -  [**20**](https://cdn.discordapp.com/attachments/345470672245489675/804357647222308874/Screenshot_2021-01-28-21-28-34-204_com.nintendo.zaba.jpg) - recarmloss
 
      -  [**21**](https://i.imgur.com/lKnXLGh.jpg) -  StormAurora
 
@@ -8710,6 +8724,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**48**](https://i.imgur.com/jIxEN75.jpg) - BoomToast
 
       -  [**49**](https://i.imgur.com/wFKzo2g.png) - Skybeat8
+
+      -  [**50**](https://cdn.discordapp.com/attachments/345470672245489675/804357601801273374/Screenshot_2021-01-28-21-29-02-353_com.nintendo.zaba.jpg) - recarmloss
 
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
@@ -10142,6 +10158,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**57**](https://i.imgur.com/2Gz5rYx.jpg) - 1breadstick
       
       -  [**58**](https://i.imgur.com/eypzDa1.jpg) - Zerimar_
+
+      -  [**59**](https://i.imgur.com/ZNrOGk5.png) - Bored5437
 
 -  [**Soren (Greil's Devoted)**](https://cdn.discordapp.com/attachments/380482610683707395/544155650855534623/image0.png) - star-light-trip
 
