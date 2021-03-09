@@ -101,6 +101,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**7**](https://i.imgur.com/mlpTNNk.png) - Skybeat8
 
+     -  [**8**](https://i.imgur.com/0RWFiFF.jpg) - Xuanwu7
+
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
      -  [**2**](https://i.imgur.com/0Upb1B5.png) - AnkouDusk
@@ -3003,6 +3005,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/yG6IjW1.png) - Phanngle
 
+      -  [**5**](https://i.imgur.com/ZOX5JuY.png) - Aaronwebber9
+
 -  [**Elise (Summer)**](https://i.imgur.com/vQSys8B.png) - Hokiras
 
       -  [**2**](http://i.imgur.com/ktFyKxy.png) - exxit5408
@@ -3204,6 +3208,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://preview.redd.it/v6cqehltw2461.png?width=1080&format=png&auto=webp&s=7c963f5cdba328f9c80c7cb53c1d7c07f050a0a9) - justinator119
       
 -  [**Eremiya**](https://i.imgur.com/258vwG6.jpg) - Camping_Noob
+
+-  [**Erinys**](https://i.imgur.com/eorWKT7.jpg) - Xuanwu7
 
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
@@ -5821,7 +5827,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://imgur.com/Sj8jQ0k) - Trickster_Tricks
 
-      -  [**4**](https://imgur.com/HCETy9Z) - Aaronwebber9
+      -  [**4**](https://i.imgur.com/2GoRQOD.png) - Aaronwebber9
 
       -  [**5**](https://i.imgur.com/xbAoH6d.png) - Empirica
 
@@ -11243,7 +11249,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ylgr**](https://i.imgur.com/XNNGAY0.png) - kaoru-matsubara
 
-      -  [**2**](https://i.imgur.com/sLAdIoT.jpg) - Aaronwebber9
+      -  [**2**](https://i.imgur.com/Ni6DNQM.png) - Aaronwebber9
 
 -  [**Ylgr (Summer)**](https://i.imgur.com/DLZAM3L.png) - samatoa
 
@@ -11257,7 +11263,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/evXlfNv.png) - Illumina25
 
-      -  [**7**](https://i.imgur.com/3Z08Msh.png) - Aaronwebber9
+      -  [**7**](https://i.imgur.com/ATxJ8OM.png) - Aaronwebber9
       
       -  [**8**](https://i.imgur.com/BSnu0zb.jpg) - Hitokage_Tamashi
       
