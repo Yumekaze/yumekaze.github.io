@@ -1389,6 +1389,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**43**](https://i.imgur.com/XLEmMMT.png) - Zerosiz
 
+      -  [**44**](https://i.imgur.com/4cKVOkX.png) - narzibenoucdel
+
 -  [**Catria (Hares at the Fair)**](https://i.imgur.com/x7082oQ.png) - nosefera2
 
       -  [**2**](https://i.imgur.com/xXAIZaA.jpg) - PM_ME_YOUR_WHALE
@@ -1436,6 +1438,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/tBYYd2i.jpg) - theprodigy64
 
       -  [**21**](https://i.imgur.com/i46vZQx.png) - Nintentoast
+
+      -  [**22**](https://i.imgur.com/10YTAno.png) - narzibenoucdel
 
 -  [**Cecilia (Winter)**](https://imgur.com/gallery/XdCN3n7) - MrFrostflare
 
@@ -1629,7 +1633,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**31**](https://i.imgur.com/xnksoy7.png) - Navaldeus
 
-      -  [**32**](https://i.imgur.com/MCTvd8s.jpg) - narzibenoucdel
+      -  [**32**](https://i.imgur.com/ZZUNkPV.png) - narzibenoucdel
 
       -  [**33**](https://i.imgur.com/Zkq0e5O.png) - Stargov1
 
@@ -2411,6 +2415,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/WZwpMfH.png) - SuperSnivMatt
 
+-  [**Dedue**](https://i.imgur.com/8OiST4e.png) - MeraMera27
+
 -  [**Deirdre**](https://i.imgur.com/90YFzp1.png) - Exalgar
 
       -  [**2**](https://i.imgur.com/7LuMng6.png) - exxit5408
@@ -2428,6 +2434,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/Cymn3Ph.jpg) - FearDubh
       
       -  [**9**](https://cdn.discordapp.com/attachments/461613462783655938/751006288237821982/Screenshot_20200903-051024.png) - Beddict
+
+      -  [**10**](https://i.imgur.com/KCS1y4F.png) - narzibenoucdel
 
 -  [**Delthea**](http://i.imgur.com/hIBQ62S.jpg) - samsationalization
 
@@ -3945,7 +3953,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/BB5EDRQ.jpg) - dyeitblonde
 
--  [**Greil**](https://cdn.discordapp.com/attachments/548002260643479567/551137108778024992/Screenshot_2019-03-02-07-18-26.png) - minatoapologist
+-  [**Greil (Greil's Devoted)**](https://cdn.discordapp.com/attachments/548002260643479567/551137108778024992/Screenshot_2019-03-02-07-18-26.png) - minatoapologist
+
+      -  [**2**](https://i.imgur.com/at0kgxd.jpg) - Aessir
 
 -  [**Gunnthra**](https://i.imgur.com/tNrDLNz.png) - exxit5408
 
@@ -5167,6 +5177,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**30**](https://i.imgur.com/jcvtIzn.png) - kit_you_out
 
+      -  [**31**](https://i.imgur.com/zCxmCHr.png) - narzibenoucdel
+
 -  [**Kliff**](https://i.imgur.com/y20b8wm.png) - BlueIsForPlayers
 
       -  [**2**](https://i.imgur.com/LdZ2yrr.png) - BurningSonic
@@ -5746,6 +5758,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**46**](https://cdn.discordapp.com/attachments/747297210613498216/799471743806079026/Screenshot_20210115-115227_Fire_Emblem_Heroes.jpg) - Dalewyn
       
       -  [**47**](https://i.imgur.com/VZwtNJe.jpg) - abros_vii
+
+      -  [**48**](https://i.imgur.com/FBFbPGf.png) - narzibenoucdel
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -8197,6 +8211,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.ibb.co/47B98tC/19-F05282-0-E6-E-4464-8-FCF-53-FC4618-C185.jpg) - NohrianScumbag
 
+      -  [**4**](https://i.imgur.com/VzqFXD9.png) - narzibenoucdel
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -8259,6 +8275,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://cdn.discordapp.com/attachments/713790993849385002/811157145131024432/Screenshot_20210216_164504.jpg) - ukantor
 
+      -  [**7**](https://i.imgur.com/pZMxf6f.png) - narzibenoucdel
+
 -  [**Quan**](https://i.imgur.com/NSytHgJ.jpg) - Xuanwu7
 
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
@@ -8268,6 +8286,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/RGbgBt5.jpg) - Zerimar_
 
       -  [**3**](https://i.redd.it/xvr9pagjfrk61.png) - justinator119
+
+      -  [**4**](https://i.imgur.com/gltr2NU.png) - af-fx-tion
 
 -  [**Rafiel (Groom)**](https://i.imgur.com/GSqR1zZ.jpg) - Lathel
 
@@ -8596,6 +8616,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/RLLRmxV.jpg) - Aromantic_Benzene
 
       -  [**30**](https://i.imgur.com/FN0h89m.png) - TheLeiss
+
+      -  [**31**](https://i.imgur.com/I0veejN.png) - narzibenoucdel
 
 -  [**Rhajat**](https://i.imgur.com/aUj9hyx.png) - Lachrymosity
 
@@ -9859,6 +9881,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/mtWudY5.png) - Zerosiz
 
+      -  [**3**](https://i.imgur.com/OtPW9fw.png) - narzibenoucdel
+
 -  [**Silvia**](https://i.imgur.com/iQoKseP.jpg) - mothmanex
 
       -  [**2**](https://i.imgur.com/IONdGvF.png) - SobriK
@@ -10648,6 +10672,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/2qA7KzL.png) - icydragon0605
 
       -  [**11**](https://i.imgur.com/ixddkFL.png) - Nintentoast
+
+      -  [**12**](https://i.imgur.com/zoMOxkj.png) - narzibenoucdel
 				
 -  [**Tharja**](https://i.imgur.com/Ng7vaz6.png) - kris12k4
 
@@ -10923,7 +10949,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**65**](https://i.imgur.com/tbxXfHV.png) - Demoyon
 
-      -  [**66**](https://i.imgur.com/B7PkKR5.png) - af-fx-tion
+      -  [**66**](https://i.imgur.com/NUsoYTf.png) - af-fx-tion
 
       -  [**67**](https://i.imgur.com/qn8ISbg_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
@@ -11350,6 +11376,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/6r35DmB.jpg) - Maxmence
       
       -  [**10**](https://i.imgur.com/EYq6uzk.jpg) - recarmloss
+
+      -  [**11**](https://i.imgur.com/xj3RWYu.png) - narzibenoucdel
 
 -  [**Yune**](https://i.imgur.com/tWf1A1Y.jpg) - YorozuyaTrio
 
