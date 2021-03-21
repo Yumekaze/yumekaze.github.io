@@ -1533,6 +1533,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**7**](https://i.imgur.com/T5R4nNq.jpg) - SuperSnivMatt
 
+     -  [**8**](https://i.imgur.com/fixyxbi.png) - Random546
+
 -  [**Celica (Legendary)**](https://i.imgur.com/zrvmvZi.jpg) - Belligero_
 
      -  [**2**](https://i.imgur.com/Ps8A5z0.jpg) - newlyrottenquiche
@@ -2681,6 +2683,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/bb1JhV6.png) - Estebest
 
+      -  [**8**](https://i.imgur.com/pinKRhQ.png) - Random546
+
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
       -  [**2**](http://i.imgur.com/pGKDgtO.png) - exxit5408
@@ -3028,6 +3032,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/jqw7C2A.jpg) - BlackjackLeggo
       
       -  [**15**](https://i.imgur.com/b907d1h.jpg) - Camping_Noob
+
+      -  [**16**](https://i.imgur.com/vCzHy84.png) - EpicRome23
 
 -  [**Elincia (Festival in Hoshido)**](https://imgur.com/BMrQgMn) - dirtysmall
 
@@ -4767,7 +4773,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/5FCVi8t.jpg) - Itsmisterpool
       
-      -  [**3**](https://i.imgur.com/3iiEYge.png) - EpicRome23
+      -  [**3**](https://i.imgur.com/UlIMdfd.png) - EpicRome23
       
 -  [**Jorge**](https://i.imgur.com/v2Rjb1j.jpg) - Patchoru
 
@@ -5101,7 +5107,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/GJE6FQd.jpg) -  JdiJwa
       
-      -  [**6**](https://i.imgur.com/qXxxKj3.png) - EpicRome23
+      -  [**6**](https://i.imgur.com/zpf9nfY.png) - EpicRome23
       
       -  [**7**](https://i.imgur.com/IElWzYY.png) - FairyMMM
       
@@ -5215,7 +5221,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**10**](https://i.imgur.com/EhkjxL9.jpg) - 1breadstick
       
-      -  [**11**](https://i.imgur.com/Ep37Uan.png) - EpicRome23
+      -  [**11**](https://i.imgur.com/t30X58u.png) - EpicRome23
       
       -  [**12**](https://i.imgur.com/T4Ijzcw.png) - NightmareShane
       
@@ -5307,7 +5313,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**42**](https://i.imgur.com/1qM8pzV.jpg) - MelHuney
       
-      -  [**43**](https://i.imgur.com/u1mw8vb.png) - EpicRome23
+      -  [**43**](https://i.imgur.com/P7JuMe6.png) - EpicRome23
       
       -  [**44**](https://i.imgur.com/fiXPF3m.jpg) - RoseCelebi
 
@@ -6778,6 +6784,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/eEnhaWT.png) - Nintentoast
 
       -  [**13**](https://i.imgur.com/Kb4EK7d.png) - Icy_Wolf
+
+      -  [**14**](https://i.imgur.com/b0WZ5Bl.png) - EpicRome23
       
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
@@ -8213,6 +8221,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/VzqFXD9.png) - narzibenoucdel
 
+      -  [**5**](https://i.imgur.com/PegzXYB.png) - EpicRome23
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -9575,7 +9585,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/KVNHbpK.jpg) - Climber_Fuuka
       
-      -  [**3**](https://i.imgur.com/aesuu7P.png) - EpicRome23
+      -  [**3**](https://i.imgur.com/rCaz6EM.png) - EpicRome23
       
       -  [**4**](https://i.imgur.com/PMhZjnl.jpg) - JdiJwa
 
@@ -10635,6 +10645,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/imIF2mT.jpg) - samsationalization
 
+      -  [**8**](https://i.imgur.com/psqomUa.png) - Random546
+
 -  [**Tana (Summer)**](https://i.imgur.com/yyYBOTp.jpg) - october_5
 
       -  [**2**](https://i.imgur.com/4GSeDzr.jpg) - alcyone_
@@ -10995,6 +11007,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**88**](https://i.imgur.com/pAuw8sU.jpg) - chaosangel
 
+      -  [**89**](https://i.imgur.com/Rj0t5Ek.png) - EpicRome23
+
 -  [**Tiki (Adult, Summer)**](https://i.imgur.com/cx9IFyC.jpg) - Kranox7656
 
       -  [**2**](http://i.imgur.com/YKZlANA.png) - exxit5408	
@@ -11167,7 +11181,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**40**](https://i.imgur.com/DkLoh9W.jpg) - xZealHakune
       
-      -  [**41**](https://i.imgur.com/zGnH6Bh.png) - EpicRome23
+      -  [**41**](https://i.imgur.com/CGC8NnH.png) - EpicRome23
       
       -  [**42**](https://i.imgur.com/5Qno7SG.jpg) - BoomToast
 
