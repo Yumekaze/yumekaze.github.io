@@ -3897,8 +3897,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/hiQx2dK.jpg) - Totsutei
 
-      -  [**3**](https://media.discordapp.net/attachments/673535121797939203/821901637252677693/image0.png) - PM_ME_LEGIT_ANYTHING
-
+      -  [**3**](https://media.discordapp.net/attachments/673535121797939203/821901637252677693/image0.png) - KaiDoesStuff
 -  [**Genny**](http://i.imgur.com/dLUj7ek.jpg) - ahiro46
 
       -  [**2**](https://i.imgur.com/VHEh8Eg.png) - exxit5408
