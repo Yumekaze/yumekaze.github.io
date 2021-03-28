@@ -885,7 +885,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/zhoYiIN.png) - minno
       
-      -  [**8**](https://i.imgur.com/o3uNKrz.png) - TheLeiss
+      -  [**8**](https://i.imgur.com/pZMREv8.png) - TheLeiss
       
       -  [**9**](https://i.imgur.com/Wfn59Fo.jpg) - PegaponyPrince
       
@@ -4148,7 +4148,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/vBd9R3P.png) - Zerosiz
 
-      -  [**6**](https://i.imgur.com/j7kaZlc.png) - TheLeiss
+      -  [**6**](https://i.imgur.com/G4VfBlx.png) - TheLeiss
 
       -  [**7**](https://i.imgur.com/0jeMSMD.png) - Icy_Wolf
 
@@ -10781,6 +10781,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/WszpwoI.jpg) - DoveCannon
       
       -  [**38**](https://i.imgur.com/mtiiXeC.jpg) - Caty409
+
+      -  [**39**](https://i.imgur.com/GJQW5Xb.png) - TheLeiss
 
 -  [**Tharja (Winter)**](https://i.imgur.com/q44b8y5.png) - Stratigizer
 
