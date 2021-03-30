@@ -4354,6 +4354,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.redd.it/exjb0nbjfrk61.png) - justinator119
 
+      -  [**9**](https://i.imgur.com/N1ZthVW.jpg) - Waifu4Laifu
+
 -  [**Hinata**](https://i.imgur.com/k0zqlK8.jpg) - lazygreenfox 
 
       -  [**2**](https://i.imgur.com/RjfHvDJ.png) - RanQrusu
