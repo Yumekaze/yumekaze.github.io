@@ -7154,6 +7154,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**31**](https://i.imgur.com/Szmb1Km.png) - FairyMMM
 
+      -  [**32**](https://cdn.discordapp.com/attachments/702009335542448128/827334932124794880/image0.png) - BobbyYukitsuki
+
 -  [**Myrrh (Halloween)**](https://imgur.com/lToO9a6) - dirtysmall
 
       -  [**2**](https://i.imgur.com/pcfM6fm.jpg) - Rabbytt
