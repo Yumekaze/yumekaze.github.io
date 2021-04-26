@@ -4191,6 +4191,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/6YuB6O0.jpg) - PegaponyPrince
       
       -  [**30**](https://i.imgur.com/cpnzQlr.jpg) - MelHuney
+
+      -  [**31**](https://i.imgur.com/IfIzpDG.jpg) - theprodigy64
       
 -  [**Hana (Ninja)**](https://i.imgur.com/H00HDm8.jpg) - Cloudyspecs
 
@@ -5858,6 +5860,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**49**](https://i.imgur.com/ZWG2Y1x.png) - MelHuney
 
+      -  [**50**](https://i.imgur.com/13gZP7H.jpg) - theprodigy64
+
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
       -  [**2**](https://i.imgur.com/YUkCZoZ.jpg) - BlackjackLeggo
@@ -6409,6 +6413,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/AtNKooT.jpg) - SuperSnivMatt
       
       -  [**5**](https://i.redd.it/zm95vz5kfde51.png) - Zothic
+
+-  [**Lyon (Young)**](https://cdn.discordapp.com/attachments/702009335542448128/836120287245631508/Screenshot_20210426-160307_Fire_Emblem_Heroes.jpg) - Ryzer28
 
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
 
