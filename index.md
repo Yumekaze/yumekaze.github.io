@@ -4908,6 +4908,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/ibTHh5A.jpg) - LaiLiPing
 
+      -  [**5**](https://i.imgur.com/gqB8DBC.png) - X-pert74
+
 -  [**Julius**](https://i.imgur.com/zg0XqIU.png) - El_Fonz0
 
       -  [**2**](https://i.imgur.com/aR6ZW8Q.jpg) - crowning_sapphire
@@ -10861,6 +10863,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/zoMOxkj.png) - narzibenoucdel
 
       -  [**13**](https://i.imgur.com/mYda0GZ.png) - reilie
+
+      -  [**14**](https://preview.redd.it/l00cyg1aurv61.jpg?width=320&crop=smart&auto=webp&s=9ae6500080e2df91e7348fc6a2bffd8ee0e0a1e2) - ProfessionalSquid
 				
 -  [**Tharja**](https://i.imgur.com/Ng7vaz6.png) - kris12k4
 
