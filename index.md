@@ -311,6 +311,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://preview.redd.it/qgxdxsfkfzt61.png?width=358&auto=webp&s=52ad8ced6875cfc6df7954acb6e943d6daf05b86) - 98Ms_
 
+      -  [**7**](https://i.imgur.com/kZJAeQE.jpg) - ValiantDuran
+
 -  [**Astram**](https://i.imgur.com/pTqVHtz.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/McpuPCI.png) - UnfortunateVeon
@@ -2537,6 +2539,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/jKjiTIM.jpg) - StormAurora
 
+      -  [**8**](https://i.imgur.com/f1qshuj.jpg) - Red_Demons_Dragon
+
 -  [**Dimitri (Legendary)**](https://i.imgur.com/Lxmx8gV.jpg) - InfiniteLoop0
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
@@ -3191,6 +3195,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**48**](https://i.imgur.com/MnRZGpT.png) - Nintentoast
 
+      -  [**49**](https://i.imgur.com/coMcwrf.jpg) - ValiantDuran
+
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
       -  [**2**](https://i.imgur.com/kfVkpoK.jpg) - FaZeR_PT
@@ -3834,6 +3840,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://imgur.com/a/HTxscOJ) - SorcererHex
       
       -  [**15**](https://i.imgur.com/YGPON02.jpg) - Zerimar_
+
+      -  [**16**](https://i.imgur.com/ECyxVfA.jpg) - ValiantDuran
 
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
@@ -4583,6 +4591,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**23**](https://i.imgur.com/pgvi264.jpg) - Faithispower
 
       -  [**24**](https://i.imgur.com/rleX2I2.png) - af-fx-tion
+
+      -  [**25**](https://preview.redd.it/fuovdvwomyv61.png?width=358&auto=webp&s=ce882aff3152b9e9eb9cdc5f5db4fc8d5c4fa53e) - 98Ms_
 
 -  [**Ike (Legendary)**](https://i.imgur.com/DGqWXvI.png) - Sadistice
 
@@ -8146,6 +8156,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**34**](https://i.imgur.com/BkjcMRk.png) - Nintentoast
 
+      -  [**35**](https://i.imgur.com/ZlJVqyq.jpg) - ValiantDuran
+
 -  [**Olivia (Performing)**](https://i.imgur.com/8G5DppR.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/6CFo1c4.jpg) - jaesuk97
@@ -8364,6 +8376,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://preview.redd.it/4ju7yg9ifzt61.png?width=357&auto=webp&s=0f45a9bc5c2c9330d3fd200dace310d81f2755e2) - 98Ms_
 
+      -  [**9**](https://i.imgur.com/b4ikdbN.jpg) - ValiantDuran
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -8552,6 +8566,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**43**](https://i.imgur.com/UZOe5sU.png) - sisaac_nouise
 
+      -  [**44**](https://i.imgur.com/An1CgD0.jpg) - ValiantDuran
+
 -  [**Rebecca**](https://i.imgur.com/e3NZG26.jpg) - dcho1 
 
       -  [**2**](https://i.imgur.com/rHSDxPj.jpg) - Sabaron
@@ -8705,6 +8721,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**61**](https://i.imgur.com/T4i7bJf.png) - popkerapping
 
       -  [**62**](https://i.imgur.com/B7Cpb0N.png) - reilie
+
+      -  [**63**](https://i.imgur.com/O651bKS.jpg) - ValiantDuran
 
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
@@ -11412,7 +11430,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/BU7DY1w.jpg) - s07195
 
--  [**Valter**](https://i.imgur.com/ARxaT5k.jpg) - ValiantDuran
+-  [**Valter**](https://i.imgur.com/h4seh8g.jpg) - ValiantDuran
 
       -  [**2**](https://i.imgur.com/5nUXLAJ.png) - kirakarra
 
