@@ -895,7 +895,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/wfYoEqJ.png) - COLFO
       
-      -  [**4**](https://i.imgur.com/mhSvTjL.jpg) - NohrianScumbag
+      -  [**4**](https://i.imgur.com/mvzXpcz.jpg) - NohrianScumbag
       
       -  [**5**](https://i.imgur.com/aqE0JyZ.jpg) - Soren319
       
@@ -1231,7 +1231,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/HxEeMKK.png) - n_kaze_
 
-      -  [**8**](https://i.imgur.com/EpP6vMC.jpg) - RestlessRoman
+      -  [**8**](https://i.imgur.com/rblh7B0.jpg) - RestlessRoman
 
       -  [**9**](https://i.imgur.com/hXNNb9o.jpg) - FearDubh
 
@@ -1243,7 +1243,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/8GYmggQ.jpg) - october_5
 
-      -  [**5**](https://i.imgur.com/S4tSI2E.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/awCti54.jpg) - RestlessRoman
 
       -  [**6**](https://i.imgur.com/se15cbW.png) - go4ino
       
@@ -2065,7 +2065,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**44**](https://i.imgur.com/fkz6wQ4.png) - djb2spirit
       
-      -  [**45**](https://i.imgur.com/hCEPAVw.jpg) - NohrianScumbag
+      -  [**45**](https://i.imgur.com/4v8Nj7g.jpg) - NohrianScumbag
       
       -  [**46**](https://i.imgur.com/AuSw518.png) - Soren319
       
@@ -5490,7 +5490,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/d6dn0hW.jpg) - SorcererHex
 
-      -  [**9**](https://i.ibb.co/5TNdP9z/ACAD2-C02-8-DB9-4-A54-91-A2-8414-F16248-B6.png) - NohrianScumbag
+      -  [**9**](https://i.imgur.com/Pho4LfE.jpg) - NohrianScumbag
 
 -  [**Laegjarn (New Year's)**](https://imgur.com/a/ky5iHF8) - Teh2chao2
 
@@ -5874,11 +5874,15 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**50**](https://i.imgur.com/13gZP7H.jpg) - theprodigy64
 
+      -  [**51**](https://i.imgur.com/yOiv3lQ.jpg) - NohrianScumbag
+
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
       -  [**2**](https://i.imgur.com/YUkCZoZ.jpg) - BlackjackLeggo
       
       -  [**3**](https://i.imgur.com/BjGi2Qm.png) - Excellus
+
+-  [**Lilina (Legendary)**](https://i.imgur.com/X89LZbL.jpg) - NohrianScumbag
 
 -  [**Lilith**](https://i.imgur.com/EvVD4yr.jpg) - Rabbytt
 
@@ -6911,6 +6915,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/b0WZ5Bl.png) - EpicRome23
 
       -  [**15**](https://i.imgur.com/8vnRXof.jpg) - StormAurora
+
+      -  [**16**](https://i.imgur.com/IBptFhO.jpg) - RestlessRoman
       
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
@@ -8310,7 +8316,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/atpTMGf_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
-      -  [**5**](https://i.imgur.com/0mBrq1w.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/7XA0NPS.jpg) - RestlessRoman
 
       -  [**6**](https://i.imgur.com/Swvs5DJ.png) - Shy-
 
@@ -8950,7 +8956,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/tjNvTgi.png) - sorry97
 
-      -  [**27**](https://i.imgur.com/l9y9Y93.jpg) - RestlessRoman
+      -  [**27**](https://i.imgur.com/FONOTZK.jpg) - RestlessRoman
 
       -  [**28**](https://i.imgur.com/bDPzwUB.jpg) - myopicfirework
 
@@ -9487,6 +9493,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Say'ri**](https://cdn.discordapp.com/attachments/535672869640994816/725603744481411102/Screenshot_20200624-234457_Fire_Emblem_Heroes.jpg) - dankpointer
 
       -  [**2**](https://i.imgur.com/GRahm5Y.jpg) - is_Maestro
+
+-  [**Seiros**](https://i.imgur.com/Xk0PdZ4.jpg) - NohrianScumbag
       
 -  [**Selena (Sacred Stones)**](https://i.imgur.com/BX9ComW.jpg) - aiasthegreatest
       
