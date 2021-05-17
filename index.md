@@ -1423,6 +1423,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**44**](https://i.imgur.com/4cKVOkX.png) - narzibenoucdel
 
+      -  [**45**](https://i.imgur.com/ZzT3ONs.png) - YoungsterCalvin319
+
 -  [**Catria (Hares at the Fair)**](https://i.imgur.com/x7082oQ.png) - nosefera2
 
       -  [**2**](https://i.imgur.com/xXAIZaA.jpg) - PM_ME_YOUR_WHALE
@@ -3556,6 +3558,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**63**](https://i.imgur.com/Rqivxlh.png) - Nintentoast
 
       -  [**64**](https://i.imgur.com/Brq0XMj.png) - TheLukewarmYeti
+
+      -  [**65**](https://i.imgur.com/8FFojCW.png) - YoungsterCalvin319
 
 -  [**Fae (Winter)**](https://i.imgur.com/YGZhO5b.jpg) - Rabbytt
 
@@ -6145,6 +6149,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/lV5zM5n.png) - Phanngle
       
       -  [**18**](https://i.imgur.com/ouLCWjO.jpg) - RoseCelebi
+
+      -  [**19**](https://i.imgur.com/uuPgjHz.png) - YoungsterCalvin319
       
 -  [**Lorenz (Summer)**](https://i.imgur.com/urw1Xvy.jpg) - A_Nifty_Person
 
@@ -6803,6 +6809,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**60**](https://i.imgur.com/9EB3y3p.jpeg) - ssbmelee99
       
       -  [**61**](https://i.imgur.com/lG0NPzw.jpg) - LinkaFlame
+
+      -  [**62**](https://i.imgur.com/P6oNuUa.png) - YoungsterCalvin319
 
 -  [**Marth (Legendary)**](https://i.imgur.com/sY7k3mF.jpg) - IamShakes
 
@@ -8126,6 +8134,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**90**](https://cdn.discordapp.com/attachments/713790993849385002/815768841921495071/IMG_20210301_091314.jpg) - recarmloss
 
+      -  [**91**](https://i.imgur.com/bEIJXMB.png) - YoungsterCalvin319
+
 -  [**Nowi (Halloween)**](https://i.imgur.com/i54tVwr.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/zbxUtzu.png) - TrueSuffering
@@ -9173,6 +9183,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**50**](https://cdn.discordapp.com/attachments/345470672245489675/804357601801273374/Screenshot_2021-01-28-21-29-02-353_com.nintendo.zaba.jpg) - recarmloss
 
       -  [**51**](https://i.imgur.com/SgFqegv.png) - PigPen910
+
+      -  [**52**](https://i.imgur.com/GWZDJAp.png) - YoungsterCalvin319
 
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
