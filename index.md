@@ -313,6 +313,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/kZJAeQE.jpg) - ValiantDuran
 
+      -  [**8**](https://i.imgur.com/THKrI39.png) - pokerapping
+
 -  [**Astram**](https://i.imgur.com/pTqVHtz.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/McpuPCI.png) - UnfortunateVeon
@@ -434,6 +436,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**34**](https://i.imgur.com/FbBYIR9.jpg) - BoomToast
       
       -  [**35**](https://i.imgur.com/AQ7Iquh.jpg) - DoveCannon
+
+      -  [**36**](https://i.imgur.com/IrQlNYa.png) - EggHiraeth
 
 -  [**Ayra**](https://i.imgur.com/HkjaxBE.png) - FoxesGoneWilde
 
@@ -2333,6 +2337,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/IhYmEoZ.jpg) - Slurpuffilicious
 
+      -  [**7**](https://i.imgur.com/saSD6Fl.png) - EggHiraeth
+
 -  [**Corrin (M)**](http://i.imgur.com/qq0VqlO.png) - exxit5408
 
       -  [**2**](https://media.discordapp.net/attachments/223219748438016003/404796436060962816/25593675_10156097492390962_2137895446_n.png?width=263&height=468) - Leidon94
@@ -2401,7 +2407,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**34**](https://i.imgur.com/CHwZ2S6.jpg) - BoomToast
       
-      -  [**35**](https://i.imgur.com/QTnPViW.png) - pokerapping
+      -  [**35**](https://i.imgur.com/8lOzKFp.png) - pokerapping
 
       -  [**36**](https://i.imgur.com/4sBKPkZ.jpg) - sigmawolf87
 
@@ -3255,6 +3261,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**51**](https://cdn.discordapp.com/attachments/718304782632091648/834663027310723112/Screenshot_20210420-215530_Fire_Emblem_Heroes.jpg) - helioview
 
+      -  [**52**](https://i.imgur.com/GMQfP9z.png) - EggHiraeth
+
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
       -  [**2**](https://i.imgur.com/kfVkpoK.jpg) - FaZeR_PT
@@ -3416,6 +3424,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/GbPp5cf.jpg) - LinkaFlame
 
       -  [**27**](https://i.imgur.com/6rBBY65.png) - MelHuney
+
+-  [**Est (Spring)**](https://i.imgur.com/t09JRny.png) - Basaqu
 
 -  [**Ethlyn**](https://i.imgur.com/tFWkncX.jpg) - Skyliner14
 
@@ -4299,6 +4309,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/Ky7Nrn4.jpg) - Papiville
 
       -  [**9**](https://cdn.discordapp.com/attachments/718304782632091648/834663064615911464/Screenshot_20210420-215553_Fire_Emblem_Heroes.jpg) - helioview
+
+      -  [**10**](https://i.imgur.com/kc5wCRM.png) - EggHiraeth
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -6516,6 +6528,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Lyn (Summer)**](https://i.imgur.com/8zXGBud.png)  - thunderunited16
 
+-  [**Lyn + Florina (Ninja)**](https://i.imgur.com/RvD5nOJ.png) - EggHiraeth
+
 -  [**Lyon**](https://i.imgur.com/PU5E8zx.png) - Alaguesia
 
       -  [**2**](https://i.imgur.com/ekMbpCA.png) - fork_the_world
@@ -7063,6 +7077,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/0aUIDbd.jpg) - Slurpuffilicious
 
       -  [**18**](https://cdn.discordapp.com/attachments/718304782632091648/834663071946506250/Screenshot_20210420-215617_Fire_Emblem_Heroes.jpg) - helioview
+
+      -  [**19**](https://i.imgur.com/mQvVhOv.png) - EggHiraeth
       
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
@@ -7371,6 +7387,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**31**](https://i.imgur.com/Uu2zF03.jpg) - TiltControls
 
       -  [**32**](https://cdn.discordapp.com/attachments/359178878654087198/830273182954946590/image0.png) - Legitimate__Username
+
+      -  [**33**](https://i.imgur.com/HQd69Lx.png) - pokerapping
       
 -  [**Mustafa**](https://i.imgur.com/NwDIFaD.jpg) - Tollomer
 
@@ -7545,6 +7563,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/ch77A2L.jpg) - YuvonGrohiik
       
       -  [**15**](https://i.imgur.com/hcMTsNp.png) - AggravatedTowel
+
+      -  [**16**](https://i.imgur.com/apHgh4Y.png) - EggHiraeth
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
 
@@ -7953,6 +7973,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/vflbRW8.png) - souicune
 
       -  [**19**](https://cdn.discordapp.com/attachments/718304782632091648/836390051448487956/Screenshot_20210426-195506_Fire_Emblem_Heroes.jpg) - helioview
+
+      -  [**20**](https://i.imgur.com/FsRslwf.png) - EggHiraeth
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
 
@@ -8620,6 +8642,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/pZMxf6f.png) - narzibenoucdel
 
+      -  [**8**](https://i.imgur.com/43HvN8y.png) - pokerapping
+
 -  [**Quan**](https://i.imgur.com/NSytHgJ.jpg) - Xuanwu7
 
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
@@ -8907,6 +8931,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**62**](https://i.imgur.com/B7Cpb0N.png) - reilie
 
       -  [**63**](https://i.imgur.com/O651bKS.jpg) - ValiantDuran
+
+      -  [**64**](https://i.imgur.com/bDOKfK3.png) - pokerapping
 
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
@@ -10339,6 +10365,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**23**](https://i.imgur.com/ZDC9IPE.jpg) - StormAurora
 
       -  [**24**](https://cdn.discordapp.com/attachments/718304782632091648/834662979005710376/Screenshot_20210420-215513_Fire_Emblem_Heroes.jpg) - helioview
+
+      -  [**25**](https://i.imgur.com/wqmftxD.png) - EggHiraeth
 
 -  [**Sirius**](https://i.imgur.com/yrwIbE0.jpg) - Shuyomi
 
@@ -11786,7 +11814,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**9**](https://i.imgur.com/oxHCJCw.jpg) - Caty409
       
-      -  [**10**](https://i.imgur.com/PR8fdOH.png) - pokerapping
+      -  [**10**](https://i.imgur.com/sD5aBTM.png) - pokerapping
 
 -  [**Xander (Spring)**](https://i.imgur.com/tY0jURg.png) - PolyArmored 		
 
