@@ -181,7 +181,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**6**](https://i.imgur.com/vMp17jd.png) - GameBearMan
       
-      -  [**7**](https://cdn.discordapp.com/attachments/400224227577298946/798710532458020914/Screenshot_20210112-193011.png) - ShanoaSSB
+      -  [**7**](https://cdn.discordapp.com/attachments/601366271384354826/822088698836549632/Screenshot_20210318-084418.png) - ShanoaSSB
 
       -  [**8**](https://cdn.discordapp.com/attachments/791604816609542184/813168620238536744/image0.png) - AlbinosRideDinos
 
@@ -473,7 +473,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/cJZODj2.jpg) - raike1028
 
-      -  [**16**](https://cdn.discordapp.com/attachments/400224227577298946/798710583066755082/Screenshot_20210112-192720.png) - ShanoaSSB
+      -  [**16**](https://cdn.discordapp.com/attachments/400224227577298946/848495052359729192/AyraFeh.png) - ShanoaSSB
 
       -  [**17**](https://i.imgur.com/CmBeM10.jpg) - Grade-AMasterpiece
       
@@ -5578,7 +5578,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/JyWAkwv.png) - Toadinator2000
 
-      -  [**5**](https://cdn.discordapp.com/attachments/400224227577298946/798711069848633344/Screenshot_20210112-193223.png) - ShanoaSSB
+      -  [**5**](https://cdn.discordapp.com/attachments/400224227577298946/848494804697481216/lachabsorb.png) - ShanoaSSB
 
       -  [**6**](https://i.imgur.com/4gGfTrD.png) - siroxorsid
 
