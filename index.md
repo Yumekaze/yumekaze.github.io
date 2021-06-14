@@ -111,6 +111,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**9**](https://imgur.com/a/M6oZy1E) - ValiantDuran
 
+     -  [**10**](https://i.ibb.co/VCvc8vz/Altena.jpg) - NohrianScumbag
+
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
      -  [**2**](https://i.imgur.com/0Upb1B5.png) - AnkouDusk
@@ -2811,6 +2813,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/LWI3CWf.png) - ShadowMLuigi
 
+      -  [**11**](https://i.imgur.com/m87VUmP.jpg) - Ghotistyx_
+
 -  [**Edelgard (Fallen)**](https://cdn.discordapp.com/attachments/374245210084868098/845489175330816061/Screenshot_20210522-043138_Fire_Emblem_Heroes.jpg) - danilkom
 
       -  [**2**](https://i.imgur.com/r6K5qvz.png) - ShadowMLuigi
@@ -3289,7 +3293,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**44**](https://i.imgur.com/hwMHR02.png) - Darth-Not-Palpatine
       
-      -  [**45**](https://i.imgur.com/5w1jYOW.jpg) - Ghotistyx_
+      -  [**45**](https://i.imgur.com/eSKVcrv.jpg) - Ghotistyx_
 
       -  [**46**](https://i.imgur.com/SLoicyp.jpg) - VeemotheeThe2nd
 
@@ -3355,7 +3359,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://i.imgur.com/YCyEL7B.png) - Estebest
       
-      -  [**5**](https://i.imgur.com/2gArMge.jpg) - Ghotistyx_
+      -  [**5**](https://i.imgur.com/HlsEOhz.jpg) - Ghotistyx_
 
       -  [**6**](https://i.imgur.com/2pxb8iq.jpg) - SuddenJami
 
@@ -3847,7 +3851,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**24**](https://imgur.com/K5SCboC) - SirBanners
 
-      -  [**25**](https://i.imgur.com/BypUV74.png) - Ghotistyx_
+      -  [**25**](https://i.imgur.com/urUmNwr.jpg) - Ghotistyx_
 
       -  [**26**](https://i.imgur.com/DEw3XrT.jpg) - abros_vii
 
@@ -4185,6 +4189,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/s2BBHtD.jpg) - raike1028
 
       -  [**5**](https://i.imgur.com/JWj6MHq.jpg) - BlackjackLeggo
+
+      -  [**6**](https://i.ibb.co/6W5LBPb/Gunnthra.jpg) - NohrianScumbag
 
 -  [**Gunnthra (New Years)**](https://i.imgur.com/6FmG86i.jpg) - iamdarthyoshi
 
@@ -7354,6 +7360,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/W0N7Fq0.png) - BenNegify
 
+      -  [**7**](https://i.imgur.com/gEsg2bz.jpg) - Ghotistyx_
+
 -  [**Minerva (Spring)**](https://i.imgur.com/70V4S3B.jpg) - RestlessRoman
       
 -  [**Miranda**](https://i.imgur.com/1fkaA1t.jpg) - chaosangel
@@ -7475,6 +7483,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**33**](https://i.imgur.com/HQd69Lx.png) - pokerapping
 
       -  [**34**](https://i.imgur.com/GBWvwu2.png) - ShadowMLuigi
+
+      -  [**35**](https://i.imgur.com/WFzXQKD.jpg) - Ghotistyx_
       
 -  [**Mustafa**](https://i.imgur.com/NwDIFaD.jpg) - Tollomer
 
@@ -7996,6 +8006,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**92**](https://i.imgur.com/YfNuUvu.jpg) - BattlleTendency
 
+      -  [**93**](https://i.ibb.co/c8kpKjW/Nino.jpg) - NohrianScumbag
+
 -  [**Nino (SF)**](https://cdn.discordapp.com/attachments/312889387631509514/454581030603587587/Screenshot_2018-06-08-19-42-08_com.nintendo.zaba.png) - rowcla
 
       -  [**2**](https://i.imgur.com/z7zfFuI.jpg) - LasermasterA
@@ -8355,6 +8367,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**21**](https://i.imgur.com/EzrhAur.jpg) - SoleilMain
       
       -  [**22**](https://i.imgur.com/jYhU4nS.jpg) - Paytron12qw
+
+      -  [**23**](https://i.imgur.com/vUzZUpg.jpg) - GoldMoon0
 
 -  [**Ogma**](http://i.imgur.com/s75eVw2.png) - exxit5408
 
@@ -9168,7 +9182,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**13**](https://i.imgur.com/2XCj5si.jpg) - raike1028
 
-     -  [**14**](https://i.imgur.com/FK7JSpq.jpg) - Ghotistyx_
+     -  [**14**](https://i.imgur.com/Y8sk8Xe.jpg) - Ghotistyx_
 
      -  [**15**](https://i.imgur.com/TyRh69Y.jpg) - Non_Causa_Pro_Causa
 
@@ -9668,7 +9682,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/2EW837Z.png) - TyrantCarnivore
       
-      -  [**4**](https://i.imgur.com/YkqRJEx.jpg) - Ghotistyx_
+      -  [**4**](https://i.imgur.com/RPHSriA.jpg) - Ghotistyx_
 
       -  [**5**](https://i.imgur.com/sujBCFP.png) - Skybeat8
 
@@ -11116,7 +11130,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**33**](https://i.imgur.com/erYXlaW.jpg) - HellaHotLancelot
       
-      -  [**34**](https://i.imgur.com/Pg15JO2.jpg) - Ghotistyx_
+      -  [**34**](https://i.imgur.com/ddfqEM6.jpg) - Ghotistyx_
 
       -  [**35**](https://i.imgur.com/8veJkBO.jpg) - TinyCatStomper4000
 
@@ -11874,7 +11888,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/fxHFinA.jpg) - umarekawari
       
-      -  [**8**](https://i.imgur.com/oPrgtE5.jpg) - Ghotistyx_
+      -  [**8**](https://i.imgur.com/GEoPieC.jpg) - Ghotistyx_
 
       -  [**9**](https://i.imgur.com/8A5gJwB.jpg) - MisoSoup247
 
@@ -11916,7 +11930,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/4BucwXO.png) - Erebosio
 
-      -  [**3**](https://i.imgur.com/rrtHjLM.png) - Ghotistyx_
+      -  [**3**](https://i.imgur.com/ZlcaFiO.jpg) - Ghotistyx_
 
       -  [**4**](https://i.imgur.com/nb7nOKw.png) - BigwingBoi
 
@@ -12043,3 +12057,5 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/lirheR0.jpg) - YuvonGrohiik
       
       -  [**4**](https://i.imgur.com/KkoipoF.jpg) - go4ino
+
+      -  [**5**](https://i.imgur.com/zNQIsLB.jpg) - Ghotistyx_
