@@ -7219,6 +7219,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://cdn.discordapp.com/attachments/718304782632091648/834663071946506250/Screenshot_20210420-215617_Fire_Emblem_Heroes.jpg) - helioview
 
       -  [**19**](https://i.imgur.com/mQvVhOv.png) - EggHiraeth
+
+-  [**Mercedes (Summer)**](https://i.imgur.com/WmNDrVZ.jpg) - dahliamoonflowers
       
 -  [**Merlinus**](https://i.redd.it/gops2vdtx8061.jpg) - Pf9877
 
