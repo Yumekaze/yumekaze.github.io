@@ -917,6 +917,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**28**](https://i.imgur.com/JlaTNFM.png) - Nintentoast
 
+      -  [**29**](https://i.imgur.com/0MM9zkz.png) - Matiasjobeth
+
 -  [**Brady**](https://i.imgur.com/MNHRTq6.jpg) - ThatKoolKidOverThere
 
       -  [**2**](https://i.imgur.com/v2UaHuF.png) - MegaBanettes
@@ -1630,6 +1632,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.redd.it/m5c8r8c3uj631.jpg) - DarkKillingEdge
 
       -  [**4**](https://i.imgur.com/WMMo6tw.png) - PigPen910
+
+      -  [**5**](https://i.imgur.com/0rvtOL5.png) - Matiasjobeth
 
 -  [**Celica (Brave)**](https://i.imgur.com/5nNE4Kl.png) - Shark_Jaws
 
@@ -6551,6 +6555,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/GAYMojB.png) - TyrantCarnivore
       
       -  [**17**](https://i.imgur.com/7and3ZE.jpg) - BoomToast
+
+      -  [**18**](https://i.imgur.com/jRd9i9H.jpg) - Dacko04
 
 -  [**Lugh**](https://i.imgur.com/ePEBPTS.jpg) - JdiJwa
 
