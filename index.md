@@ -2658,6 +2658,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/B56RPHB.jpg) - LinkaFlame
 
       -  [**13**](https://i.imgur.com/FKqtlZC.jpg) - zSolaris
+
+      -  [**14**](https://i.imgur.com/nif6qnh.png) - Matiasjobeth
       
 -  [**Dieck**](https://i.imgur.com/N4sql7S.jpg) - Ninlink
 
@@ -4699,6 +4701,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/3HxzqFx.jpg) - Slurpuffilicious
 
       -  [**12**](https://i.imgur.com/NMdkpQP.jpg) - jdotremy
+
+      -  [**13**](https://i.imgur.com/hiDJosQ.png) - king-lizard87
 
 -  [**Hilda + Marianne (Summer)**](https://i.imgur.com/prQYOJC.jpg) - dahliamoonflowers
 
@@ -6931,6 +6935,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/aoAAi76.png) - Nintentoast
 
       -  [**14**](https://i.imgur.com/PxwaGvT.png) - Luis_lara12345
+
+      -  [**15**](https://i.imgur.com/PNGGEBs.png) - king-lizard87
 
 -  [**Marisa (Spring)**](https://i.imgur.com/DRvJGTf.png) - Thrasir37
 
@@ -12137,6 +12143,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/LR0ujyD.jpg) - YuvonGrohiik
       
 -  [**Wolt (Summer)**](https://i.imgur.com/Lc0wgLJ.jpg) - JdiJwa
+
+      -  [**2**](https://i.imgur.com/kwA2Icx.png) - Gamer178
 
 -  [**Wrys**](https://i.imgur.com/EwpRKbl.png) - athropods 
 
