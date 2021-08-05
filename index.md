@@ -865,6 +865,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**29**](https://i.imgur.com/jztWtUs.png) - kit_you_out
 
+      -  [**30**](https://i.imgur.com/gDUSNgl.png) - MisoSoup247
+
 -  [**Boey**](http://i.imgur.com/Mwx23oB.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/uD0ZHzU.png) - kiisyuu
@@ -4040,6 +4042,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/gjykB0b.png) - Bored5437
 
       -  [**12**](https://i.imgur.com/ivsLfb4.jpg) - BattlleTendency
+
+-  [**Flayn**](https://i.imgur.com/louIg81.jpg) - MisoSoup247
 
 -  [**Flora**](https://i.imgur.com/sdzuvdH.png) - EpicSquids
 
