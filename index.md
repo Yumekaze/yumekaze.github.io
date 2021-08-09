@@ -3875,6 +3875,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/bzVX1Nm.png) - reilie
 
+      -  [**8**](https://i.imgur.com/tUxGxlA.jpg) - edgy_thing
+
 -  [**Finn**](https://i.imgur.com/N821g61.jpg) - MegaEspeon
 
       -  [**2**](http://imgur.com/a/Zue9dlk) - deoxys_101993
@@ -4010,6 +4012,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/Xrj7qtT.jpg) - MrMedicinal
 
       -  [**19**](https://i.imgur.com/lBead6e.jpg) - Mr-Moonlight-
+
+      -  [**20**](https://i.imgur.com/mYTzml3.png) - SirHopper
 
 -  [**Fjorm (New Years)**](https://imgur.com/a/WF4Qbld) - Teh2chao2
 
@@ -5855,6 +5859,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://cdn.discordapp.com/attachments/294552858756382731/612043842262138930/Screenshot_20190816-155858_Fire_Emblem_Heroes.jpg)  - TomatoFlakes
 
       -  [**4**](https://i.imgur.com/66FLqs5.png) - october_5
+
+      -  [**5**](https://i.imgur.com/fdxurQw.jpg) - VillageMoron
 
 -  [**Laevatein**](https://i.imgur.com/9TMit7r.png) - SentoriGunnah7046
 
@@ -8900,6 +8906,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/b4ikdbN.jpg) - ValiantDuran
 
+      -  [**10**](https://i.imgur.com/VVkXS9o.jpg) - edgy_thing
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -9544,6 +9552,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**52**](https://i.imgur.com/GWZDJAp.png) - YoungsterCalvin319
 
+      -  [**53**](https://i.imgur.com/PK1yahx.png) - SirHopper
+
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/CRkvsIb.jpg) - jaesuk97
@@ -9653,6 +9663,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/d5IbRrq.png) - af-fx-tion
 
       -  [**23**](https://i.imgur.com/nC9RAZE.png) - Eclahn
+
+      -  [**24**](https://i.imgur.com/1kP9SvN.png) - SirHopper
 
 [**Robin (F Fallen Hero) (Halloween)**](https://i.imgur.com/l92paoj.png) - PM_ME_LEGIT_ANYTHING
 
@@ -10603,6 +10615,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/aVYpt0I.jpg) - Gliscens
 
       -  [**9**](https://i.imgur.com/gAWVvtK.jpg) - MegaEspeon
+
+      -  [**10**](https://i.imgur.com/G8FJ5Vc.jpg) - edgy_thing
 
 -  [**Siegbert**](https://i.imgur.com/hfj2QQG.png) - exxit5408
 
