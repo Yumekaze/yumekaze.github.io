@@ -3321,6 +3321,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Elincia (Festival in Hoshido)**](https://imgur.com/BMrQgMn) - dirtysmall
 
+      -  [**2**](https://i.redd.it/hu1yl6l37ri71.jpg) - AlbinosRideDinos
+
 -  [**Elise**](http://i.imgur.com/zUfO0AN.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/xA3odoP.jpg) - jaesuk97
@@ -7366,6 +7368,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/swrgf4i.jpg) - MrStreeter
 
       -  [**23**](https://i.imgur.com/JSaxiXf.png) - MelHuney
+
+-  [**Marth (Brave)**](https://i.redd.it/cdlkl9s1hvh71.jpg) - FryingIceCream
 
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
@@ -12518,3 +12522,5 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/KkoipoF.jpg) - go4ino
 
       -  [**5**](https://i.imgur.com/zNQIsLB.jpg) - Ghotistyx_
+
+
