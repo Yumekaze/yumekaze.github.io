@@ -2073,6 +2073,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/9gTjoF8.jpg) - Haydos823
 
+      -  [**8**](https://i.imgur.com/4yQQqal.png) - LittleIslander
+
 -  [**Claude**](https://i.imgur.com/sODrwke.jpg) - LiliTralala
 
       -  [**2**](https://i.imgur.com/fGjGUoF.jpg) - goldtreebark
@@ -3397,7 +3399,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://i.imgur.com/V6DMXd9.png) - recarmloss
 
-      -  [**22**](https://i.imgur.com/92FVRbr.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**22**](https://i.imgur.com/0mPEO2Z.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**23**](https://i.imgur.com/enl7COP.jpg) - thomasawesome55
 
@@ -3473,7 +3475,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/FhWbVIu.png) - secret_julius
 
-      -  [**6**](https://i.imgur.com/rMNbTZP.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**6**](https://i.imgur.com/71AV6VU.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**7**](https://i.imgur.com/tnSyRs9.jpg) - Bang-a-Bonk
 
@@ -3561,7 +3563,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/sfNqMZ8.jpg) - dryomi_23
 
+      -  [**7**](https://i.imgur.com/hHsof41.png) - PM_ME_EDGEWORTH_NUDE
+
 -  [**Ephraim (Winter)**](https://i.imgur.com/B9EAeEZ.jpg) - Demestro
+
+      -  [**2**](https://i.imgur.com/TQRD1CQ.png) - PM_ME_EDGEWORTH_NUDE
 
 -  [**Ephraim + Lyon**](https://i.imgur.com/Dag3zsb.jpg) - Belligero_
 
@@ -3570,6 +3576,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/GpFkvep.png) - Taichikins
       
       -  [**4**](https://preview.redd.it/v6cqehltw2461.png?width=1080&format=png&auto=webp&s=7c963f5cdba328f9c80c7cb53c1d7c07f050a0a9) - justinator119
+
+      -  [**5**](https://i.imgur.com/SNkuUYH.png) - PM_ME_EDGEWORTH_NUDE
       
 -  [**Eremiya**](https://i.imgur.com/258vwG6.jpg) - Camping_Noob
 
@@ -6299,7 +6307,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/400blMk.jpg) - BlazeBloom
 
-      -  [**16**](https://i.imgur.com/q0taxP9.jpg) - PM_ME_EDGEWORTH_NUDE
+      -  [**16**](https://i.imgur.com/YCAhePE.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**17**](https://i.imgur.com/Fwc3SFf.jpg) - Totsutei
 
@@ -6933,6 +6941,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/dDtWWLv.png) - Nintentoast
 
+      -  [**3**](https://i.imgur.com/7vSQi9z.png) - LittleIslander
+
 -  [**Lyon**](https://i.imgur.com/PU5E8zx.png) - Alaguesia
 
       -  [**2**](https://i.imgur.com/ekMbpCA.png) - fork_the_world
@@ -7169,7 +7179,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**25**](https://i.imgur.com/It3jUVu.png) - Liquidrocks
 
-      -  [**26**](https://i.imgur.com/Jy4m4uE.jpg) - PM_ME_EDGEWORTH_NUDE
+      -  [**26**](https://i.imgur.com/KYsr3dI.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**27**](https://i.imgur.com/RSqqztV.png) - jolanz5
 
@@ -9405,7 +9415,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**32**](https://i.imgur.com/UA2iN8d.jpg) - randomtexanyall
 
-      -  [**33**](https://i.imgur.com/W8jhcra.jpg) - PM_ME_EDGEWORTH_NUDE
+      -  [**33**](https://i.imgur.com/Q44whxA.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**34**](http://imgur.com/rKQiZ5T) - Tollomer
 
@@ -9971,7 +9981,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/P3KxhiF.jpg) - battle0tortoise 
 
-      -  [**11**](https://i.imgur.com/9O6Y3yr.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**11**](https://i.imgur.com/K5VDuqs.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**12**](https://i.imgur.com/gKQxA3Z.png) - MiLiBi_
 
@@ -10043,13 +10053,15 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/eiJWZgY.jpg) - jaesuk97
 
-      -  [**3**](https://i.redd.it/wvu0z0a10j441.jpg) - PM_ME_EDGEWORTH_NUDE
+      -  [**3**](https://i.imgur.com/11LwOmp.png) - PM_ME_EDGEWORTH_NUDE
       
       -  [**4**](https://i.imgur.com/Kk5VONY.png) - go4ino
 
 -  [**Roy (Love Abounds)**](https://i.imgur.com/SUDUrJU.png) - Jtarts
 
       -  [**2**](https://i.imgur.com/27XWRXA.jpg) - PM_ME_YOUR_WHALE
+
+      -  [**3**](https://i.imgur.com/jjwnAJw.png) - PM_ME_EDGEWORTH_NUDE
 
 -  [**Roy (Legendary)**](https://i.imgur.com/a4DgwyN.jpg) - abros_vii
 
@@ -12584,3 +12596,5 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/KkoipoF.jpg) - go4ino
 
       -  [**5**](https://i.imgur.com/zNQIsLB.jpg) - Ghotistyx_
+
+
