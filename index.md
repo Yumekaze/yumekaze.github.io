@@ -1428,6 +1428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/KPze3Zu.png) - Nintentoast
 
       -  [**4**](https://i.imgur.com/FMd4DWe.jpg) - kiizuro
+
+      -  [**5**](https://preview.redd.it/1gkg20hhohc71.png?width=345&auto=webp&s=01b67c3d8762b48e824e4f79a80b8f8ebbdce707) - lizardsbelike
       
 -  [**Catherine**](https://i.imgur.com/1D3CPNk.jpg) - Climber_Fuuka
 
@@ -2961,6 +2963,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/r6K5qvz.png) - ShadowMLuigi
 
+      -  [**3**](https://i.imgur.com/Skd9oe5.jpg) - Aesidyne
+
 -  [**Effie**](https://i.imgur.com/IY1NDs7.png) - equiNine
 
       -  [**2**](http://i.imgur.com/pGKDgtO.png) - exxit5408
@@ -3921,6 +3925,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**51**](https://i.imgur.com/S68lM31.png) - UltraZoraman
 
+      -  [**52**](https://preview.redd.it/m1n56rrh9yt61.png?width=365&auto=webp&s=8dbbc73acdd5355afeed75412019e6b75e76a914) - lizardsbelike
+
 -  [**Felicia (Picnic)**](https://i.imgur.com/ucLR1Yb.jpg) - saiyanhikari
 
 -  [**Felix (Winter)**](https://i.imgur.com/DdrBtxO.jpg) - Nineve
@@ -4833,6 +4839,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/CauuUJW.jpeg) - Neiooking
 
+      -  [**16**](https://preview.redd.it/tul5u2yhig771.png?width=320&crop=smart&auto=webp&s=80ac9712b152b957c3eb9145141e9af3964f92df) -  lizardsbelike
+
 -  [**Hilda + Marianne (Summer)**](https://i.imgur.com/prQYOJC.jpg) - dahliamoonflowers
 
       -  [**2**](https://i.imgur.com/yjUSXEv.jpg) - Slurpuffilicious
@@ -5484,6 +5492,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/dm1eNw5.jpg) - RoseCelebi
 
       -  [**38**](https://i.imgur.com/layb2SR.png) - af-fx-tion
+
+      -  [**39**](https://cdn.discordapp.com/attachments/753794131276595291/885312444845682709/image0.png)  - BobbyYukitsuki
 
 -  [**Kagero (Hares at the Fair)**](https://i.imgur.com/DDPWUna.png) - Afrogdite
 
@@ -6224,6 +6234,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/nzPZZ3S.jpg) - YuvonGrohiik
 
       -  [**9**](https://i.imgur.com/krnQUjQ.jpeg) - Neiooking
+
+      -  [**10**](https://i.imgur.com/fcysL9L.jpg) - Aesidyne
 
 -  [**Lex**](https://i.imgur.com/QsYhHGD.png) - Skybeat8
 
@@ -8920,6 +8932,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/grtRqXB.jpg) - Bane_of_Ruby
 
 -  [**Orochi**](https://i.imgur.com/7fd7iYP.jpg) - Slurpuffilicious
+
+-  [**Orson**](https://cdn.discordapp.com/attachments/753794131276595291/885312472599379968/image0.png) - BobbyYukitsuki
 
 -  [**Oscar**](https://i.imgur.com/wkFl9Tj.png) - slammysouls
 
