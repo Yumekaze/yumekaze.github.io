@@ -5409,7 +5409,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**14**](https://i.imgur.com/KIvHpG6.jpg) - TinyCatStomper4000
 
-      -  [**15**](https://i.imgur.com/jF9OEFS.png) - 
+      -  [**15**](https://i.imgur.com/jF9OEFS.png) - Saints_Space
 
 -  [**Juno (Bridal)**](https://i.imgur.com/E7UKpjQ.png) - Galevayu05
 
@@ -8086,6 +8086,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/nOYjSrX.png) - TankyMage
 
 -  [**Narcian (Spring)**](https://abload.de/img/fefefvlkjj.jpg) - Taralyn
+
+      -  [**2**](https://i.imgur.com/pnvK3tm.png) - Saints_Space
 
 -  [**Natasha**](https://i.imgur.com/MhJhVR7.jpg) - kieku1
 
