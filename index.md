@@ -363,6 +363,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/0MRkOvd.png) - wright764
 
+      -  [**12**](https://i.imgur.com/8iN8yyI.jpg) - BreakfastMint
+
 -  [**Astram**](https://i.imgur.com/bqmapwS.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/McpuPCI.png) - UnfortunateVeon
@@ -747,6 +749,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/o2BN00V.jpg) - goldenchocobokitty
 
+      -  [**4**](https://i.imgur.com/rSaFwzX.jpg) - BreakfastMint
+
 -  [**Berkut (Soiree)**](https://i.imgur.com/iAEdPcJ.jpg) - goldenchocobokitty
 
       -  [**2**](https://i.imgur.com/tnScSrh.jpg) - RoseCelebi
@@ -1107,7 +1111,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**42**](https://i.imgur.com/7o5lGNd.png) - Silent-Frost
 
-      -  [**43**](https://i.imgur.com/ECP8nGd.jpg) - FullFrontalAnal
+      -  [**43**](https://i.imgur.com/Oy3j2AL.jpg) - FullFrontalAnal
 
       -  [**44**](https://i.imgur.com/uh6uL4d.jpg) - FearDubh
 
@@ -4357,9 +4361,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/n2EDj9e.png) - Pit_Solitayrh
 
+      -  [**9**](https://i.imgur.com/rq79Jab.jpg) - BreakfastMint
+
 -  [**Genny (Picnic)**](https://cdn.discordapp.com/attachments/263516248057315329/570780411739766835/Screenshot_2019-04-24-20-10-59.png) - shoyooo
 
-      -  [**2**](https://i.imgur.com/WKhE46b.png) - BreakfastMint
+      -  [**2**](https://i.imgur.com/c4RmIjd.jpg) - BreakfastMint
 
 -  [**Gerik**](https://i.imgur.com/Irripiz.jpeg) - dyeitblonde
 
@@ -5108,6 +5114,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/PqFBaKk.png) - Nintentoast
 
       -  [**6**](https://i.imgur.com/XQmd9K2.jpg) - YuvonGrohiik
+
+      -  [**7**](https://i.imgur.com/mnud92d.jpg) - Tery_
 
 -  [**Ilyana (Halloween)**](https://i.imgur.com/wkh4qaA.png) - ZeroCalorieMSG
 
@@ -5943,6 +5951,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**47**](https://i.imgur.com/zvJJZgp.png) - MystyM
 
+      -  [**48**](https://i.imgur.com/4YOqscm.jpg) - BreakfastMint
+
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
       -  [**2**](https://i.imgur.com/rfHNnZB.png) - kieku1
@@ -6127,6 +6137,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/C95NsSC.jpg) - JdiJwa
 
+      -  [**4**](https://i.imgur.com/kl26qVH.jpg) - BreakfastMint
+
 -  [**Legault**](https://i.imgur.com/MJjYNUb.png) - chiropterakee
 
       -  [**2**](https://imgur.com/gallery/4kv4Llo) - ClickHereToDie
@@ -6196,6 +6208,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**3**](https://i.imgur.com/TfAtHBu.png) - PagePyralis
 
      -  [**4**](https://i.imgur.com/f26BKxX.png) - Meltlilith
+
+     -  [**5**](https://i.imgur.com/20w3XBb.jpg) - BreakfastMint
+
+     -  [**6**](https://i.imgur.com/pHwcP9Y.jpg) - FullFrontalAnal
 
 -  [**Lene**](https://i.imgur.com/eJZEReu.jpg) - Jazzswipe
 
@@ -6910,6 +6926,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/eqixEfL.jpg) - GoldenYoshistar1
 
       -  [**7**](https://i.imgur.com/oyq6Yvi.png) - BlazeBloom
+
+      -  [**8**](https://i.imgur.com/qtT5nnM.jpg) - BreakfastMint
 
 -  [**Lyn**](https://i.imgur.com/eUTeVsu.png) - exxit5408
 
@@ -7991,6 +8009,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**33**](https://i.imgur.com/KTS0TPR.png) - BenNegify
 
+      -  [**34**](https://i.imgur.com/U3KGl0z.jpg) - BreakfastMint
+
 -  [**Myrrh (Halloween)**](https://imgur.com/lToO9a6) - dirtysmall
 
       -  [**2**](https://i.imgur.com/pcfM6fm.jpg) - Rabbytt
@@ -8056,6 +8076,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**2**](https://i.imgur.com/9iv6WZr.jpg) - FullFrontalAnal
      
      -  [**3**](https://i.imgur.com/2JXMJK0.jpg) - Menetone
+
+     -  [**4**](https://i.imgur.com/erpjAKH.jpg) - BreakfastMint
 
 -  [**Nah**](https://i.imgur.com/ugHuSwe.jpg) - Rabbytt
 
@@ -8542,6 +8564,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/uF0izyM.jpg) - zSolaris
 
       -  [**23**](https://i.imgur.com/jCuuRhb.jpg) - tamminhvtkg
+
+      -  [**24**](https://i.imgur.com/Xu8neQv.jpg) - BreakfastMint
+
+-  [**Norne (Summer)**](https://i.redd.it/d9ott67h6sl71.png) - souicune
+
+      -  [**2**](https://i.imgur.com/Y7L4bM0.jpg) - FullFrontalAnal
 
 -  [**Nott**](https://i.ibb.co/BnN8RKK/Nott.jpg) - NohrianScumbag
 
@@ -9180,6 +9208,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/YfYic1X.jpg) - Project__Z
 
       -  [**13**](https://i.imgur.com/g7pdbsS.jpg) - RestlessRoman
+
+      -  [**14**](https://i.imgur.com/8UtLKaR.jpg) - FullFrontalAnal
 
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
@@ -10990,6 +11020,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/XACTjj1.jpg) - BreakfastMint
 
       -  [**4**](https://i.imgur.com/GFwGv4d.jpg) - MisoSoup247
+
+      -  [**5**](https://i.imgur.com/oLftsKC.jpg) - BreakfastMint
       
 -  [**Silque (Valentine's)**](https://i.imgur.com/ZzrgX0e.png) - BlazeBloom
 
@@ -11486,6 +11518,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/DGoa8WZ.png) - Xtarification
       
       -  [**5**](https://i.imgur.com/94Lz1PE.jpg) - YuvonGrohiik
+
+      -  [**6**](https://i.imgur.com/kxXpKTS.jpg) - BreakfastMint
 
 -  [**Sothis (Winter)**](https://i.imgur.com/hI1YmmC.jpg) - Rabbytt
 
@@ -12482,6 +12516,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**2**](https://i.imgur.com/7K7TrwK.jpg) - Pikapals52
 		
 -  [**Vika (Pirate)**](https://i.imgur.com/pFiVrR5.jpg) - Lathel
+
+      -  [**2**](https://i.imgur.com/9f3ITzJ.jpg) - BreakfastMint
 
 -  [**Virion**](https://i.redditmedia.com/L5a72uLPpeuyONaBKpQE-qYywRHTaulCdqF31ViyClA.png?w=432&s=79d2c62d53980a386ef50b531d5f419c) - Kinkazooie 	
 
