@@ -12569,6 +12569,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**43**](https://i.imgur.com/D4LktsL.png) - Eclahn
 
+      -  [**44**](https://i.imgur.com/mvC2VLv.jpg) - feffany
+
 -  [**Titania (Greil's Devoted)**](https://i.imgur.com/GaZjSHy.png) - icydragon0605
 
       -  [**2**](https://i.imgur.com/LEVpsBb.png) - GhostCouch12
