@@ -4331,6 +4331,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Freyja (Summer)**](https://i.imgur.com/kLOIGc8.png) - Random546
 
+-  [**Freyr (Summer)**](https://i.imgur.com/iIPiHmy.png) - Dream-Queen-Lilith
+
 -  [**Gaius**](https://cdn.discordapp.com/attachments/285145120037404673/377331528331427840/image.png) - Eirikafeh
 
       -  [**2**](http://i.imgur.com/4ezWOYT.jpg) - CeruleanEmbers
@@ -5246,6 +5248,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ishtar (Soiree)**](https://i.imgur.com/v3Ubktk.jpg) - ptolemy77
 
       -  [**2**](https://i.imgur.com/ZQ5WOok.jpg) - TheKboos
+
+      -  [**3**](https://i.redd.it/nfdzekrr05q71.jpg) - chaosangel
 
 -  [**Itsuki**](https://i.imgur.com/Xblcm4c.png) - IRSkyclaw
 
@@ -7785,7 +7789,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**17**](https://i.redd.it/jiu6urcngxz51.jpg) - Icelerate
 
-      -  [**18**](https://i.imgur.com/ZqY0YmA.jpg) - Pyrozendot
+      -  [**18**](https://i.imgur.com/JqYZPyt.jpg) - Pyrozendot
 
 -  [**Micaiah (Festival in Hoshido)**](https://imgur.com/nEHL5Ts) -  dirtysmall
 
@@ -7805,7 +7809,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/w8NRNIv.jpg) - raike1028
 
-      -  [**8**](https://i.imgur.com/3xMqQs1.jpg) - Pyrozendot
+      -  [**8**](https://i.imgur.com/ckZMz16.jpg) - Pyrozendot
       
 -  [**Micaiah + Sothe (Bridal)**](https://preview.redd.it/vmjnhqcafzt61.png?width=357&auto=webp&s=9f3f2172a0f6a9a5e48358c95970ceab02c9c2cb) - 98Ms_
 
@@ -11625,7 +11629,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**18**](https://i.imgur.com/q4n5pwU.jpg) - kaeporo
 
-      -  [**19**](https://i.imgur.com/4NhmnYI.jpg) - Pyrozendot
+      -  [**19**](https://i.imgur.com/JmMCzMe.jpg) - Pyrozendot
       
       -  [**20**](https://i.imgur.com/lpxq67Y.jpg) - Neiooking
       
