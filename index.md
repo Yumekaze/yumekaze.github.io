@@ -347,6 +347,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://i.imgur.com/D0EGl8W.png) - shipperondeck
 
+      -  [**14**](https://iili.io/RypnTJ.jpg) - Supergupo
+
 -  [**Asbel**](https://i.imgur.com/dDv1f5l.jpg) - ReclusiveBoatGuy
 
 -  [**Ashe (Summer)**](https://i.redd.it/so1iuew75l671.png) - justinator119
@@ -1428,6 +1430,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/OwsQPnv.jpg) - Camping_Noob
 
       -  [**10**](https://i.imgur.com/hEm8UAN.jpg) - MrStreeter
+
+      -  [**11**](https://i.imgur.com/YwIvmDc.png) - Latibello
 
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
@@ -3607,7 +3611,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/6IGFK0p.jpg) - BlackjackLeggo
       
-      -  [**4**](https://i.imgur.com/7sprZ9R.jpg) - Latibello
+      -  [**4**](https://i.imgur.com/mKFVHr3.png) - Latibello
 
 -  [**Ephraim (Brave)**](https://i.imgur.com/OiXtXys.jpg) - The_Fire_King
 
@@ -4789,6 +4793,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**14**](https://i.imgur.com/dU0ih9P.png) - 0blivionKnight
 
+      -  [**15**](https://i.imgur.com/hlcTQon.png) - Latibello
+
 -  [**Hector (Brave)**](https://i.imgur.com/JSO4HsD.jpg) - WholeLottaThangs
 
       -  [**2**](https://imgur.com/53Qg08f) - Nhyem
@@ -5168,6 +5174,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/XQmd9K2.jpg) - YuvonGrohiik
 
       -  [**7**](https://i.imgur.com/mnud92d.jpg) - Tery_
+
+      -  [**8**](https://i.imgur.com/ZzIQSiw.png) - Navaldeus
 
 -  [**Ilyana (Halloween)**](https://i.imgur.com/wkh4qaA.png) - ZeroCalorieMSG
 
@@ -6298,6 +6306,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**5**](https://i.imgur.com/20w3XBb.jpg) - BreakfastMint
 
      -  [**6**](https://i.imgur.com/pHwcP9Y.jpg) - FullFrontalAnal
+
+     -  [**7**](https://i.imgur.com/P51yScK.png) - Navaldeus
 
 -  [**Lene**](https://i.imgur.com/eJZEReu.jpg) - Jazzswipe
 
@@ -7715,6 +7725,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/QiDQNjr.jpg) - CherryBlossomHero
 
+      -  [**12**](https://i.imgur.com/YgeakkP.png) - Latibello
+
 -  [**Mia**](https://i.imgur.com/K7JTwtV.jpg) - Lonignus
 
       -  [**2**](https://i.imgur.com/Ms1gB0r.png) - exxit5408
@@ -8263,6 +8275,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/OyHjRyc.jpg) - DasRegMan
 
+      -  [**4**](https://i.imgur.com/34Cg3TH.jpg) - reesesmilkshake577
+
 -  [**Navarre (Ninja)**](https://i.imgur.com/N71g4lV.jpg) - PhoenixPlot
       
 -  [**Nemesis**](https://i.imgur.com/fbPnGp9.jpg) - TiltControls
@@ -8691,6 +8705,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/ygfs9lZ.png) - sanseb429
 
+      -  [**5**](https://i.imgur.com/0fIQBrL.png) - Navaldeus
+
 -  [**Nott**](https://i.ibb.co/BnN8RKK/Nott.jpg) - NohrianScumbag
 
 -  [**Nowi**](https://i.imgur.com/Fg8kMax.png) - equiNine
@@ -9004,6 +9020,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/5gWVWnT.jpg) - Dacko04
 
 -  [**Ogma (Summer)**](https://i.imgur.com/siwhu5u.jpg) - JdiJwa
+
+      -  [**2**](https://i.imgur.com/WcBYIWM.jpg) - reesesmilkshake577
 
 -  [**Oliver**](https://i.imgur.com/4fIlszV.jpg) - Pumplard
 
@@ -12684,6 +12702,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Vika (Pirate)**](https://i.imgur.com/pFiVrR5.jpg) - Lathel
 
       -  [**2**](https://i.imgur.com/9f3ITzJ.jpg) - BreakfastMint
+
+      -  [**3**](https://i.imgur.com/I6Ad78k.png) - Latibello
 
 -  [**Virion**](https://i.redditmedia.com/L5a72uLPpeuyONaBKpQE-qYywRHTaulCdqF31ViyClA.png?w=432&s=79d2c62d53980a386ef50b531d5f419c) - Kinkazooie 	
 
