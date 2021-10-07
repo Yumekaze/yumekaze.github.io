@@ -2603,6 +2603,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**37**](https://i.imgur.com/0hwNEwG.jpg) - kiizuro
 
+      -  [**38**](https://preview.redd.it/91cv6jp0w4r71.jpg?width=769&format=pjpg&auto=webp&s=d011b6f07e48556093df4d80ddf1fa7ac9d87dd4) - TheFerydra
+
 -  [**Corrin (M Adrift)**](https://imgur.com/mEtVsxO) - northwind789
 
       -  [**2**](https://i.imgur.com/VXYEKu3.jpg) - 360spinfish
@@ -12926,3 +12928,5 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/KkoipoF.jpg) - go4ino
 
       -  [**5**](https://i.imgur.com/zNQIsLB.jpg) - Ghotistyx_
+
+      -  [**6**](https://i.imgur.com/mvJb6q8.png) - Espeonage7
