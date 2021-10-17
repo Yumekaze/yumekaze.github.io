@@ -5987,6 +5987,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**18**](https://i.imgur.com/EoDmomr.png) - UltraZoraman
 
+-  [**Kurthnaga (Halloween)**](https://i.imgur.com/C8q46Uv.jpg) - dahliamoonflowers
+
 -  [**L'Arachel**](https://cdn.discordapp.com/attachments/285145120037404673/408742393014386689/image.png) - Eirikafeh
 
       -  [**2**](https://cdn.discordapp.com/attachments/481934396660776962/541079592308441090/image2.png) - Galastan
@@ -8365,6 +8367,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/t3bHJYv.jpg) - CzarKhasm
 
+      -  [**5**](https://media.discordapp.net/attachments/754171403275730995/896950384944357467/Screenshot_2021-10-10-21-40-23.png) - SebGMP
+
 -  [**Nephenee**](https://i.imgur.com/lZpdIfZ.png) - slammysouls
 
       -  [**2**](https://i.imgur.com/EKjEiiI.jpg) - 7FFF00
@@ -9894,6 +9898,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/QU05z2X.png) - jaesuk97
 
       -  [**4**](https://cdn.discordapp.com/attachments/379031683632070657/404540591821815808/Screenshot_2018-01-21-01-38-58.png) - MarcoVento
+
+-  [**Rhea (Halloween)**](https://cdn.discordapp.com/attachments/869718852878098482/895707703589101618/image0.png) - Red_Demons_Dragon
       
 -  [**Rhys (Summer)**](https://i.imgur.com/lJhxvp6.jpg) - RevolutioFalco
 
@@ -11806,6 +11812,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/LiIcHmQ.jpg) - Kami-San
       
       -  [**4**](https://i.imgur.com/gBKgmTP.jpg) - DoveCannon
+
+-  [**Sothis + Byleth (M) (Halloween)**](https://i.imgur.com/jC9AQA5.jpg) - dahliamoonflowers
 
 -  [**Sumia**](https://i.imgur.com/kGM7O5W.png) - PagePyralis
 
