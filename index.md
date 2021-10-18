@@ -1353,6 +1353,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**63**](https://i.imgur.com/Z3cB2rk.jpg) - Pikapals52
 
+      -  [**64**](https://i.imgur.com/V2Fwirz.jpg) - MrStreeter
+
 -  [**Camilla (Spring)**](http://i.imgur.com/49zvG0l.jpg) - ZephyrRC 
 
       -  [**2**](https://i.imgur.com/wYFRZeM.png) - exxit5408
@@ -1407,6 +1409,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/SOrzqC5.png) - Bio_liquid0
 
+      -  [**4**](https://i.imgur.com/n36S4or.jpg) - MrStreeter
+
 -  [**Camilla (Hot Spring)**](https://i.imgur.com/7yPlDN5.png) - Designates
 
       -  [**2**](https://i.imgur.com/9MYPDyJ.jpg) - RockLeePenguin
@@ -1424,6 +1428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/G2iI7kV.jpg) - jblissey
       
       -  [**9**](https://i.imgur.com/bXp8eHt.jpg) - Caty409
+
+      -  [**10**](https://i.imgur.com/mvS6Q3F.jpg) - MrStreeter
 
 -  [**Camilla (Brave)**](https://i.imgur.com/3jjcZ20.jpg) - RockLeePenguin
 
@@ -3677,6 +3683,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Erinys**](https://i.imgur.com/9bFRq24.jpg) - Xuanwu7
 
+      -  [**2**](https://media.discordapp.net/attachments/423647419792752640/899040343285198878/Screenshot_20211016-162457.png) - ShanoaSSB
+
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
       -  [**2**](https://i.imgur.com/joS93j2.png) - exxit5408
@@ -4300,6 +4308,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/TLfSN8j.jpg) - Snowiss
 
       -  [**7**](https://i.imgur.com/WPtTyiN.png) - souicune
+
+      -  [**8**](https://i.imgur.com/hQAmpQs.jpg) - VeemotheeThe2nd
 
 -  [**Forsyth**](https://i.imgur.com/piSr24Y.jpg) - MetaTriforce
 
@@ -6092,6 +6102,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
       -  [**2**](https://i.imgur.com/rfHNnZB.png) - kieku1
+
+-  [**L'Arachel (Young)**](https://i.imgur.com/L6xV7xy.png) - kieku1
 
 -  [**Lachesis**](https://i.imgur.com/pjR6sjN.png) - PolyArmored 
 
@@ -7990,6 +8002,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Miranda**](https://i.imgur.com/1fkaA1t.jpg) - chaosangel
 
       - [**2**](https://i.imgur.com/tHvTtYy.jpg) - JdiJwa
+
+      - [**3**](https://i.imgur.com/uYhOlhp.png) - Tollomer
 
 -  [**Mist**](https://i.imgur.com/lkKDkfF.png) - YorozuyaTrio
 
