@@ -1991,7 +1991,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**33**](https://i.imgur.com/hXxWSbw.jpg) - andypin2002
       
-      -  [**34**](https://cdn.discordapp.com/attachments/753796194832220171/875908130482049065/image3.png) - scarletflowers
+      -  [**34**](https://cdn.discordapp.com/attachments/753796194832220171/899558007187320882/image1.png) - scarletflowers
       
       -  [**35**](https://i.imgur.com/DkPpj11.jpg) - BoomToast
 
@@ -9969,7 +9969,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**5**](https://i.imgur.com/0ncXPSm.png) - Trigourd
 
-     -  [**6**](https://cdn.discordapp.com/attachments/753796194832220171/875908130096152626/image2.png) - scarletflowers
+     -  [**6**](https://cdn.discordapp.com/attachments/753796194832220171/899558006189080626/image0.png) - scarletflowers
 
      -  [**7**](https://i.imgur.com/kRUCtIk.jpg) - phopandafan
 
