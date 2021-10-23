@@ -4218,6 +4218,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Fjorm (Bride)**](https://imgur.com/lboYatj) - AbyssiHu
 
       -  [**2**](https://imgur.com/gallery/aM7bsHI) - xero245
+
+-  [**Fjorm (Ascended)**](https://i.imgur.com/M0Blttn.jpg) - AbyssiHu
+
+      -  [**2**](https://i.imgur.com/YzLngMq.png)  - A_Splash_of_Citrus
       
 -  [**Flame Emperor**](https://i.imgur.com/wFJrC1Z.jpg) - KujoQtaro
 
