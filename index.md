@@ -2351,6 +2351,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/55ahe7A.png) - igfod13
 
+      -  [**7**](https://i.imgur.com/NedEbdd.jpg) - Luigifan10
+
 -  [**Cordelia (Summer)**](https://i.imgur.com/rwWx9kX.jpg) - dirtysmall
 
       -  [**2**](https://i.imgur.com/yYGq3km.jpg) - Lonignus
@@ -2554,6 +2556,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/saSD6Fl.png) - EggHiraeth
 
       -  [**8**](https://i.imgur.com/aM4UkZa.png) - ShadowMLuigi
+
+      -  [**9**](https://i.imgur.com/7FUFmIC.jpg) - Luigifan10
 
 -  [**Corrin (M)**](http://i.imgur.com/qq0VqlO.png) - exxit5408
 
@@ -2824,6 +2828,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/GqmUPl8.jpg) - BattlleTendency
 
       -  [**12**](https://i.imgur.com/O0hdNoz.png) - CzarKhasm
+
+      -  [**13**](https://i.imgur.com/l8e7dti.jpg) - Luigifan10
 
 -  [**Dimitri (Legendary)**](https://i.imgur.com/Lxmx8gV.jpg) - InfiniteLoop0
 
@@ -4748,6 +4754,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**15**](https://i.imgur.com/6eDxSzh.jpg) - CherryBlossomHero
 
       -  [**16**](https://i.imgur.com/Ytbhvud.jpg) - 8bitowners
+
+      -  [**17**](https://i.imgur.com/PRhApOM.jpg) - Luigifan10
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -7212,6 +7220,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/7vSQi9z.png) - LittleIslander
 
       -  [**4**](https://i.imgur.com/gU0ZZvE.jpg) - 8bitowners
+
+      -  [**5**](https://i.imgur.com/Y1SdzRD.jpg) - Luigifan10
 
 -  [**Lyon**](https://i.imgur.com/PU5E8zx.png) - Alaguesia
 
@@ -12192,6 +12202,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/ALUN7Rw.jpg) - zSolaris
 
       -  [**8**](https://i.imgur.com/pDIM8hH.png) - IDontCareByThisPoint
+
+-  [**Tatiana**](https://i.imgur.com/HG2CMoS.png) - Blizzardthree
 
 -  [**Tethys**](https://i.imgur.com/aIKxxFj.jpg) - Belligero_
 
