@@ -545,7 +545,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/cJZODj2.jpg) - raike1028
 
-      -  [**16**](https://cdn.discordapp.com/attachments/400224227577298946/848495052359729192/AyraFeh.png) - ShanoaSSB
+      -  [**16**](https://cdn.discordapp.com/attachments/400224227577298946/904760392255930409/Screenshot_20211101-115434.png) - ShanoaSSB
 
       -  [**17**](https://i.imgur.com/CmBeM10.jpg) - Grade-AMasterpiece
       
@@ -4428,6 +4428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/5ntb60a.jpg) - Pope_Penguin
 
       -  [**4**](https://i.imgur.com/2ihxU50.jpg) - JdiJwa
+
+      -  [**5**](https://i.imgur.com/jzgxCiM.png) - a_crystal_mun
       
 -  [**Gangrel**](https://i.imgur.com/oFqAqdj.jpg) - BoomToast
 
@@ -6135,7 +6137,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/JyWAkwv.png) - Toadinator2000
 
-      -  [**5**](https://cdn.discordapp.com/attachments/400224227577298946/877170361681190952/Screenshot_20210817-083303.png) - ShanoaSSB
+      -  [**5**](https://cdn.discordapp.com/attachments/400224227577298946/904760180871409664/Screenshot_20211101-115340.png) - ShanoaSSB
 
       -  [**6**](https://i.imgur.com/4gGfTrD.png) - siroxorsid
 
@@ -6179,7 +6181,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/5028Sw6.jpg) - Phanngle
       
-      -  [**4**](https://media.discordapp.net/attachments/400224227577298946/877303559962648656/Screenshot_20210817-173030.png) - ShanoaSSB
+      -  [**4**](https://cdn.discordapp.com/attachments/400224227577298946/904760238161408040/Screenshot_20211018-165642.png) - ShanoaSSB
 
       -  [**5**](https://i.imgur.com/iF4CILh.jpg) - Hydrolucario7
 
@@ -7094,6 +7096,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**38**](https://i.imgur.com/yxTwLur.png) - Jojojomoo35
 
       -  [**39**](https://i.imgur.com/gdvPRZ5.png) - TheLukewarmYeti
+
+      -  [**40**](https://i.imgur.com/s1ZBr7n.png) - a_crystal_mun
 
 -  [**Lukas (Picnic)**](https://imgur.com/a/6EuSQnC) - PapiJonty
 
