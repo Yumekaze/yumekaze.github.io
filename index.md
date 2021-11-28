@@ -6003,6 +6003,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**24**](https://i.imgur.com/IiKjVjh.jpg) - OMGOSHlol
 
+      -  [**25**](https://i.imgur.com/NCqfL5n.jpg) - RevolutioFalco
+
 -  [**Keaton**](https://i.imgur.com/xUTq09T.png) - Kaleochu
 
 -  [**Keaton (New Year's)**](https://i.imgur.com/929zbUf.jpg) - SiilentCry
@@ -6373,6 +6375,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/Pho4LfE.jpg) - NohrianScumbag
 
+      -  [**10**](https://cdn.discordapp.com/attachments/899398539409518692/910482364810031164/Screenshot_2021-11-17-11-26-41-501_com.nintendo.zaba.jpg) - Kuraran
+
 -  [**Laegjarn (New Year's)**](https://imgur.com/a/ky5iHF8) - Teh2chao2
 
       -  [**2**](https://i.imgur.com/Niwxu7G.png) - HeavenlySeraph
@@ -6392,6 +6396,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/66FLqs5.png) - october_5
 
       -  [**5**](https://i.imgur.com/fdxurQw.jpg) - VillageMoron
+
+      -  [**6**](https://cdn.discordapp.com/attachments/899398539409518692/910482377489408050/Screenshot_2021-11-17-11-51-07-817_com.nintendo.zaba.jpg) - Kuraran	
+
+-  [**Laegjarn (Ascended)**](https://cdn.discordapp.com/attachments/899398539409518692/910482364285714462/Screenshot_2021-11-17-10-44-02-568_com.nintendo.zaba.jpg) - Kuraran
+
+      -  [**2**](https://i.imgur.com/64aDvWd.png) - october_5
 
 -  [**Laevatein**](https://i.imgur.com/9TMit7r.png) - SentoriGunnah7046
 
@@ -6420,6 +6430,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Laevatain (New Years)**](https://imgur.com/Sbt7Jzf) - dejvy
 
       -  [**2**](https://i.imgur.com/Lr0MZwQ.jpg) - HeavenlySeraph
+
+      -  [**3**](https://cdn.discordapp.com/attachments/899398539409518692/910482377925619742/Screenshot_2021-11-17-11-51-14-408_com.nintendo.zaba.jpg) - Kuraran
 
 -  [**Laevatain (Summer)**](https://i.imgur.com/GUuO66H.png) - HeavenlySeraph
 
@@ -6485,7 +6497,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/kl26qVH.jpg) - BreakfastMint
 
-      -  [**5**](https://i.imgur.com/uRzaI3o.jpg) - Red_Demons_Dragon
+      -  [**5**](https://i.imgur.com/uRzaI3o.jpg) - Lathel
 
 -  [**Legault**](https://i.imgur.com/MJjYNUb.png) - chiropterakee
 
@@ -7071,6 +7083,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**22**](https://i.imgur.com/s2czhdS.jpg) - jdotremy
 
+      -  [**23**](https://i.imgur.com/ZPAV4Sr.png) - october_5
+
 -  [**Lucina (Spring)**](http://i.imgur.com/5cAJyRN.jpg) - ZephyrRC
 
       -  [**2**](https://i.imgur.com/63fc75b.png) - exxit5408
@@ -7524,6 +7538,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Malice**](https://i.imgur.com/xKwuDh2.jpg) - RestlessRoman
 
 -  [**Mamori**](https://i.imgur.com/lTl3yYF.jpg) - JdiJwa
+
+-  [**Marcia**](https://media.discordapp.net/attachments/713569772511559782/910447398709501982/IMG_1201.png) - Illumina25
       
 -  [**Mareeta**](https://i.imgur.com/kPzF2JZ.png) - Lainon
 
@@ -11276,6 +11292,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Severa (Spring)**](https://i.imgur.com/HqtsEog.jpg) - Trashris
 
       -  [**2**](https://i.imgur.com/CtDPp0Z.jpg) - DKRF
+
+      -  [**3**](https://i.imgur.com/msGEW7k.png) - VoltRizer
       
 -  [**Shamir**](https://i.imgur.com/fIRVUhf.png) - BlackStar3000
 
