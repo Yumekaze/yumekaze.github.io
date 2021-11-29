@@ -6418,6 +6418,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://imgur.com/a/9YYm09l) - SorcererHex
 
       -  [**5**](https://i.imgur.com/tMtmDAH.png) - stephenthatfoste
+      
+      -  [**6**](https://cdn.discordapp.com/attachments/899398539409518692/910482377925619742/Screenshot_2021-11-17-11-51-14-408_com.nintendo.zaba.jpg) - Kuraran
 
 -  [**Laegjarn (Summer)**](https://i.imgur.com/yWErDoE.jpg) - Kami-San
 
@@ -6461,9 +6463,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Laevatain (New Years)**](https://imgur.com/Sbt7Jzf) - dejvy
 
-      -  [**2**](https://i.imgur.com/Lr0MZwQ.jpg) - HeavenlySeraph
-
-      -  [**3**](https://cdn.discordapp.com/attachments/899398539409518692/910482377925619742/Screenshot_2021-11-17-11-51-14-408_com.nintendo.zaba.jpg) - Kuraran
+      -  [**2**](https://i.imgur.com/Lr0MZwQ.jpg) - HeavenlySerap
 
 -  [**Laevatain (Summer)**](https://i.imgur.com/GUuO66H.png) - HeavenlySeraph
 
@@ -7576,6 +7576,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Mamori**](https://i.imgur.com/lTl3yYF.jpg) - JdiJwa
 
 -  [**Marcia**](https://media.discordapp.net/attachments/713569772511559782/910447398709501982/IMG_1201.png) - Illumina25
+
+      -  [**2**](https://i.imgur.com/QNqQ4VJ.jpg) - kieku1
       
 -  [**Mareeta**](https://i.imgur.com/kPzF2JZ.png) - Lainon
 
