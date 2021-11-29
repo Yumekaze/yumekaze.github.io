@@ -758,6 +758,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/L05tAiz.jpg) - JdiJwa
 
       -  [**21**](https://i.imgur.com/6sBMJeG.png) - WRECK-IT-MUNDO
+
+      -  [**22**](https://cdn.discordapp.com/attachments/702009335542448128/915002144241909760/Screenshot_20211129-171033_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
       
 -  [**Bartre (Spring)**](https://i.imgur.com/qnw3p9z.jpg) - TiltControls
 
@@ -5573,7 +5575,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Jagen**](https://i.imgur.com/WFSWUOU.jpg) - Makaioshin
 
-      -  [**2**](https://preview.redd.it/sjul9439v5u31.png?width=431&auto=webp&s=b7582a9bb5b198382b1db4432ad67d2690e02d33) - Owain4Life
+      -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/914999554372435978/9D4B70DD-D717-485F-8ABE-94116CC60534.png) - Janchi03
       
       -  [**3**](https://i.imgur.com/Gc2zRhM.png) - Tollomer
       
@@ -6180,6 +6182,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Kris (M) (Plegian)**](https://i.imgur.com/nQtHxHJ.png) - TheFerydra
 
       -  [**2**](https://i.imgur.com/WM5moUx.jpg) - Triials
+
+      -  [**3**](https://cdn.discordapp.com/attachments/702009335542448128/915002144015392799/Screenshot_20211129-171018_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
 
 -  [**Kris (F)**](https://i.imgur.com/23kcyIj.jpg) - Slurpuffilicious
 
@@ -8446,6 +8450,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/4xB46dj.png) - MystyM
 
       -  [**5**](https://i.imgur.com/Kklk7RB.jpg) - TiltControls
+
+      -  [**6**](https://cdn.discordapp.com/attachments/702009335542448128/915002144514527305/Screenshot_20211129-171049_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
 
 -  [**Myrrh**](https://i.imgur.com/9UudlgD.jpg) - platinummemer
 
