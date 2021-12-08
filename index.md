@@ -1663,6 +1663,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Catria + Thea (Bridal)**](https://i.imgur.com/Dds0rZR.jpg) - AbyssiHu
 
+      -  [**2**](https://cdn.discordapp.com/attachments/347120035262758913/915885766310240276/Screenshot_20211202_094237.jpg) - HitsuWTG
+
 -  [**Cecilia**](https://i.imgur.com/Hy9uEzP.png) - Lucille_FE
 
       -  [**2**](http://i.imgur.com/BJB7q5G.png) - exxit5408
@@ -4639,7 +4641,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/n2EDj9e.png) - Pit_Solitayrh
 
-      -  [**9**](https://i.imgur.com/rq79Jab.jpg) - BreakfastMint
+      -  [**9**](https://i.imgur.com/hdIHUIz.jpg) - BreakfastMint
 
 -  [**Genny (Picnic)**](https://cdn.discordapp.com/attachments/263516248057315329/570780411739766835/Screenshot_2019-04-24-20-10-59.png) - shoyooo
 
@@ -7003,6 +7005,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**12**](https://i.imgur.com/glx1Qax.png) - ShadowMLuigi
 
+      -  [**13**](https://i.imgur.com/2XMrZYl.jpeg) - Pikapals52
+
 -  [**Lissa (Winter)**](https://i.imgur.com/yDDRW0N.jpg) - Styxiedust
 
       -  [**2**](https://i.imgur.com/nmUIbKb.png) - exxit5408
@@ -7845,6 +7849,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/hLQ9B09.png) - YoungsterCalvin319
 
+      -  [**7**](https://i.imgur.com/l0dHgzZ.jpg) - BreakfastMint
+
 -  [**Marth (Masked)**](https://i.imgur.com/01gZAMs.jpg) - Daze006
 
       -  [**2**](https://i.imgur.com/6TX59gf.png) - PM_ME_PNEUMA_NUDES
@@ -8245,6 +8251,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/dFDSLDE.jpg) - DoveCannon
 
+      -  [**4**](https://cdn.discordapp.com/attachments/347120035262758913/915885765752401950/Screenshot_20211202_094220.jpg0 - HitsuWTG
+
 -  [**Micaiah (Legendary)**](https://i.imgur.com/Z3KgW0d.png) - icydragon0605
 
       -  [**2**](https://i.imgur.com/guFKlAE.jpg) - Pyrozendot
@@ -8559,7 +8567,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**33**](https://i.imgur.com/KTS0TPR.png) - BenNegify
 
-      -  [**34**](https://i.imgur.com/U3KGl0z.jpg) - BreakfastMint
+      -  [**34**](https://i.imgur.com/npat1LS.jpg) - BreakfastMint
 
 -  [**Myrrh (Halloween)**](https://imgur.com/lToO9a6) - dirtysmall
 
@@ -8633,7 +8641,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      
      -  [**3**](https://i.imgur.com/2JXMJK0.jpg) - Menetone
 
-     -  [**4**](https://i.imgur.com/erpjAKH.jpg) - BreakfastMint
+     -  [**4**](https://i.imgur.com/aUJln67.jpg) - BreakfastMint
 
 -  [**Nah**](https://i.imgur.com/ugHuSwe.jpg) - Rabbytt
 
@@ -8740,6 +8748,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://media.discordapp.net/attachments/754171403275730995/896950384944357467/Screenshot_2021-10-10-21-40-23.png) - SebGMP
 
       -  [**6**](https://i.imgur.com/Ww4m2TT.png) - SuperSnivMatt
+
+      -  [**7**](https://preview.redd.it/6ia6lrq5o3381.jpg?width=345&auto=webp&s=9e0bd0d33766e52ede1f58b2465cba60a18ea002) - zedabo
 
 -  [**Nephenee**](https://i.imgur.com/lZpdIfZ.png) - slammysouls
 
@@ -11715,6 +11725,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Sigurd (Legendary)**](https://i.imgur.com/TyPCVG4.jpg) - AbyssiHu
 
+      -  [**2**](https://cdn.discordapp.com/attachments/347120035262758913/915885765366513704/Screenshot_20211202_094152.jpg) - HitsuWTG
+
 -  [**Silas**](https://imgur.com/mWreZ7C) - Megatempo
 
       -  [**2**](https://i.imgur.com/k5yH1Eh.jpg) - y_th0ugh
@@ -12045,6 +12057,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**31**](https://i.imgur.com/XqR5wG2.jpg) - Toluthin
 
+-  [**Sophia (Halloween)**](https://i.imgur.com/hMtDYz9.jpg) - BreakfastMint
+
 -  [**Soren**](https://i.imgur.com/zw2zk6P.jpg) - star-light-trip
 
       -  [**2**](http://i.imgur.com/Mfn6A6g.png) - exxit5408
@@ -12250,6 +12264,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/94Lz1PE.jpg) - YuvonGrohiik
 
       -  [**6**](https://i.imgur.com/kxXpKTS.jpg) - BreakfastMint
+
+      -  [**7**](https://i.imgur.com/MwLhXKv.jpg) - gravitylimit
 
 -  [**Sothis (Winter)**](https://i.imgur.com/hI1YmmC.jpg) - Rabbytt
 
