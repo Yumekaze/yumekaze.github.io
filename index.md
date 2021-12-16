@@ -7627,6 +7627,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/CCI4n0u.jpeg) - SorcererHex
 
+-  [**Lysithea + Lute (Winter)**](https://i.imgur.com/2m6qA4A.jpg) - BlueToon_Link
+
 -  [**Mae**](https://i.imgur.com/da4Pqe1.png) - exxit5408
 
       -  [**2**](https://cdn.discordapp.com/attachments/294552858756382731/612043838923735050/Screenshot_20190816-155845_Fire_Emblem_Heroes.jpg) - TomatoFlakes
