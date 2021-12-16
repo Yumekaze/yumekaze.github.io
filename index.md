@@ -2073,7 +2073,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**33**](https://i.imgur.com/hXxWSbw.jpg) - andypin2002
       
-      -  [**34**](https://cdn.discordapp.com/attachments/753796194832220171/899558007187320882/image1.png) - scarletflowers
+      -  [**34**](https://cdn.discordapp.com/attachments/753796194832220171/921189291995070484/IMG_0673.png) - scarletflowers
       
       -  [**35**](https://i.imgur.com/DkPpj11.jpg) - BoomToast
 
