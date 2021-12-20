@@ -5743,6 +5743,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](http://imgur.com/a/BOLVFuC) - keyver-C
 
+      -  [**5**](https://i.imgur.com/KtQsz4A.jpg) - TaihousTaihou
+
 -  [**Joshua**](https://cdn.discordapp.com/attachments/507269185408073746/618103969184612362/Screenshot_20190810-192925__01.jpg) - AudhulmaBoy
 
       -  [**2**](https://i.imgur.com/C2IGyLJ.jpg) - joe7L
@@ -7673,6 +7675,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Mamori**](https://i.imgur.com/lTl3yYF.jpg) - JdiJwa
 
+-  [**Manuela (Winter)**](https://cdn.discordapp.com/attachments/869718852878098482/920947648326950953/Screenshot_20211216-085647_08ec35600c34dc2fc5d3c148e5878b88.jpg) - AbyssiHu
+
+      -  [**2**](https://i.imgur.com/L47YPhP.jpg) - TaihousTaihou
+
 -  [**Marcia**](https://media.discordapp.net/attachments/713569772511559782/910447398709501982/IMG_1201.png) - Illumina25
 
       -  [**2**](https://i.imgur.com/QNqQ4VJ.jpg) - kieku1
@@ -7764,6 +7770,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/5dn5lZW.png) - SuperSnivMatt
 
       -  [**17**](https://i.imgur.com/orwaNgw.jpg) - IzHaz
+
+      -  [**18**](https://i.imgur.com/ryDIhJ1.jpg) - TaihousTaihou
 
 -  [**Marisa (Spring)**](https://i.imgur.com/DRvJGTf.png) - Thrasir37
 
@@ -10686,6 +10694,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**27**](https://i.imgur.com/sUzr6vw.jpg) - StormAurora
 
       -  [**28**](https://i.imgur.com/E2g9nVz.jpeg) - Neiooking
+
+      -  [**29**](https://i.imgur.com/w2mgRV1.jpg) - TaihousTaihou
 
 -  [**Robin (F Fallen Hero)**](https://i.imgur.com/AsZInT3.jpg) - Kami-San
 
