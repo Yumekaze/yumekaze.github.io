@@ -5949,6 +5949,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**43**](https://i.imgur.com/qaKtTYJ.jpeg) - SorcererHex
 
+      -  [**44**](https://media.discordapp.net/attachments/889475206081560646/923685015739576360/IMG_5400.png?width=496&height=883) - Red_Demons_Dragon
+
 -  [**Kagero (Hares at the Fair)**](https://i.imgur.com/DDPWUna.png) - Afrogdite
 
       -  [**2**](https://i.imgur.com/hoTlCLq.jpg) - Arychii
@@ -6496,6 +6498,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/tMtmDAH.png) - stephenthatfoste
       
       -  [**6**](https://cdn.discordapp.com/attachments/899398539409518692/910482377925619742/Screenshot_2021-11-17-11-51-14-408_com.nintendo.zaba.jpg) - Kuraran
+
+      -  [**7**](https://media.discordapp.net/attachments/889475206081560646/923684999620878336/IMG_5401.png?width=497&height=883) - Red_Demons_Dragon
 
 -  [**Laegjarn (Summer)**](https://i.imgur.com/yWErDoE.jpg) - Kami-San
 
@@ -7679,6 +7683,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/L47YPhP.jpg) - TaihousTaihou
 
+      -  [**3**](https://cdn.discordapp.com/attachments/889475206081560646/923685029681463337/IMG_5399.png) - Red_Demons_Dragon
+
 -  [**Marcia**](https://media.discordapp.net/attachments/713569772511559782/910447398709501982/IMG_1201.png) - Illumina25
 
       -  [**2**](https://i.imgur.com/QNqQ4VJ.jpg) - kieku1
@@ -8216,6 +8222,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/YgeakkP.png) - Latibello
 
       -  [**13**](http://imgur.com/a/ond4Lts) - keyver-C
+
+      -  [**14**](https://i.imgur.com/orjxTdC.png) - Tollomer
 
 -  [**Mia**](https://i.imgur.com/K7JTwtV.jpg) - Lonignus
 
