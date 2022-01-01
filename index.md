@@ -51,7 +51,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/yZT1KcL.jpg) - kiizuro
 
--  [**Alfonse (Valentine's)**](https://i.imgur.com/FTzK4mh.jpg) - Dexirev
+-  [**Alfonse (Valentine's)**](https://i.imgur.com/FTzK4mh.jpg) - Dexiriev
 
       -  [**2**](https://i.ibb.co/BBjqNdf/36-B0-E7-C7-EC96-4-DC8-9-E8-E-FCA915-E0-F04-A.jpg) - NohrianScumbag
 
@@ -836,6 +836,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/FDY9G8s.jpg) - Trashris
 
       -  [**10**](https://i.imgur.com/R7VpMtX.png) - ScythXGaming
+
+-  [**Bernadetta (Winter)**](https://i.imgur.com/PBdyOhh.jpg) - FangJustice
 
 -  [**Beruka**](http://i.imgur.com/ryX5K8O.jpg) - Lattikhya
 
@@ -3863,7 +3865,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Erinys**](https://i.imgur.com/9bFRq24.jpg) - Xuanwu7
 
-      -  [**2**](https://media.discordapp.net/attachments/423647419792752640/899040343285198878/Screenshot_20211016-162457.png) - ShanoaSSB'
+      -  [**2**](https://cdn.discordapp.com/attachments/279038382393393154/910976639100395540/Screenshot_20211118-143410.png) - ShanoaSSB'
 
 -  [**Erk**](https://i.imgur.com/TVDUuCS.jpg) - Trinomew
 
@@ -6463,7 +6465,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**3**](https://i.imgur.com/5028Sw6.jpg) - Phanngle
       
-      -  [**4**](https://cdn.discordapp.com/attachments/400224227577298946/904760238161408040/Screenshot_20211018-165642.png) - ShanoaSSB
+      -  [**4**](https://cdn.discordapp.com/attachments/400224227577298946/925716850820657162/Screenshot_20211229-064757.png) - ShanoaSSB
 
       -  [**5**](https://i.imgur.com/iF4CILh.jpg) - Hydrolucario7
 
