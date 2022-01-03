@@ -9743,6 +9743,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/reMFTGf.png) - ScythXGaming
 
+      -  [**3**](https://i.imgur.com/KX5AIGT.jpg) - RestlessRoman
+
 -  [**Orson**](https://cdn.discordapp.com/attachments/753794131276595291/885312472599379968/image0.png) - BobbyYukitsuki
 
 -  [**Oscar**](https://i.imgur.com/wkFl9Tj.png) - slammysouls
