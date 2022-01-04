@@ -6999,6 +6999,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/JnnlDif.jpg) - JdiJwa
 
+      -  [**3**](https://i.imgur.com/SDTM6pj.jpg) - KaijuBalls
+
 -  [**Lilith**](https://i.imgur.com/EvVD4yr.jpg) - Rabbytt
 
 -  [**Linde**](https://i.imgur.com/YIc1YuS.png) - equiNine
@@ -8317,7 +8319,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**17**](https://i.redd.it/jiu6urcngxz51.jpg) - Icelerate
 
-      -  [**18**](https://i.imgur.com/H0qECwH.jpg) - Pyrozendot
+      -  [**18**](https://i.imgur.com/Ez4bDN3.jpg) - Pyrozendot
 
 -  [**Micaiah (Festival in Hoshido)**](https://imgur.com/nEHL5Ts) -  dirtysmall
 
