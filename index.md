@@ -12918,6 +12918,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/9rw0EnC.jpg) - BattlleTendency
 
       -  [**17**](https://i.imgur.com/BQYQra4.jpg) - Phaaze13
+
+      -  [**18**](https://i.imgur.com/U2LNlqr.jpg) - TheLeiss
 				
 -  [**Tharja**](https://i.imgur.com/Ng7vaz6.png) - kris12k4
 
