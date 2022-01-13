@@ -371,6 +371,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Asbel**](https://i.imgur.com/dDv1f5l.jpg) - ReclusiveBoatGuy
 
+-  [**Ash**](https://i.imgur.com/0Q61VUk.jpg) - lilyemil
+
 -  [**Ashe (Summer)**](https://i.redd.it/so1iuew75l671.png) - justinator119
 
       -  [**2**](https://i.imgur.com/Q2eeOwE.jpg) - Dexiriev
