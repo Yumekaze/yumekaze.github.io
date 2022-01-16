@@ -409,6 +409,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://i.imgur.com/h017Je5.jpg) - Phaaze13
 
+      -  [**14**](https://cdn.discordapp.com/attachments/296455019006394370/931422417912471592/Reginalds_Ashnard_Build.png) - Registered_Unregi
+
 -  [**Astram**](https://i.imgur.com/bqmapwS.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/McpuPCI.png) - UnfortunateVeon
@@ -7575,6 +7577,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/jFV6owG.png) - Totsutei
 
+-  [**Luthier**](https://cdn.discordapp.com/attachments/296455019006394370/931421671309582426/Reginalds_Luthier_Build.png) - Registered_Unregi
+
 -  [**Lyn**](https://i.imgur.com/eUTeVsu.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/9sxAngS.png) - dyglett
@@ -9829,7 +9833,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/h0QfhTQ.png) - imgurian217
 
-      -  [**4**](https://i.imgur.com/jBo49Vd.jpg) - Mitsun
+      -  [**4**](https://cdn.discordapp.com/attachments/751697423331622922/931665447328317470/Screenshot_2022-01-15-08-15-32-673_com.nintendo.zaba.jpg) - Mitsun
 
 -  [**Olivia (Ylissean Travelers)**](http://i.imgur.com/DPb6m1o.jpg) - dirtysmall
 
@@ -10202,6 +10206,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/lFqiq41.png) - Zigoon
 
 -  [**Ranulf**](https://imgur.com/a/HXXhSev) - arqeic
+
+      -  [**2**](https://i.imgur.com/SGb93w4.jpg) - palkiia
 
 -  [**Rath**](https://i.imgur.com/Y97ITHX.jpg) - thunderunited16
 
@@ -13554,6 +13560,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/puiKmNK.png) - Saints_Space
 
 -  [**Veld**](https://i.imgur.com/BXa0MmS.jpg) - keyver-C
+
+      -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/913242707533656134/image0.png) - BobbyYukitsuki
 
 -  [**Velouria**](https://i.imgur.com/w7CmDTz.jpg) - suicidal-ghost
 
