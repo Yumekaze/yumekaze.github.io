@@ -981,7 +981,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**31**](https://i.imgur.com/bKoQyuV.png) - CzarKhasm
 
-      -  [**32**](https://i.imgur.com/4XPVoA5.jpg) - 
+      -  [**32**](https://i.imgur.com/4XPVoA5.jpg) - Phaaze13
 
 -  [**Boey**](http://i.imgur.com/Mwx23oB.png) - exxit5408
 
@@ -4511,7 +4511,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/ivsLfb4.jpg) - BattlleTendency
 
-      -  [**13**](https://media.discordapp.net/attachments/435165187117416469/872583310168182895/unknown.png?width=404&height=6690 - SolokOriginel
+      -  [**13**](https://media.discordapp.net/attachments/435165187117416469/872583310168182895/unknown.png?width=404&height=6690) - SolokOriginel
 
       -  [**14**](https://i.imgur.com/0ypsW1l.jpeg) - Neiooking
 
