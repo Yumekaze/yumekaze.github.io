@@ -709,6 +709,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/jGKtvfd.png) - LaiLiPing
 
+-  [**Azura + Leanne (Hatari)**](https://i.imgur.com/FQnBzlO.png) - MerricisBestBoy
+
 -  [**Balthus**](https://i.imgur.com/onLfuUh.jpg) - TiltControls
 
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
@@ -3907,6 +3909,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/TQRD1CQ.png) - PM_ME_EDGEWORTH_NUDE
 
+      -  [**3**](https://i.imgur.com/cHn6BaD.png) - Katerpu
+
 -  [**Ephraim + Lyon**](https://i.imgur.com/Dag3zsb.jpg) - Belligero_
 
       -  [**2**](https://i.imgur.com/zgunQhe.jpg) - TiltControls
@@ -6193,7 +6197,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**19**](https://i.imgur.com/iUOpHoB.jpg) - 1breadstick
 
-      -  [**20**](https://i.imgur.com/B2wlzrR.png) - Katerpu
+      -  [**20**](https://i.imgur.com/KbroPqU.png) - Katerpu
 
       -  [**21**](https://i.imgur.com/IGhjsDt.png) - Skybeat8
 
