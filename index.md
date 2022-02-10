@@ -5993,6 +5993,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/YWQlitq.jpg) - kiizuro
 
+      -  [**5**](https://i.imgur.com/Ov7gZy9.jpg) - EmbilianScum
+
 -  [**Kagero**](http://i.imgur.com/7XtuwzG.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/o5L5kzb.png) - Kranox7656
@@ -6600,6 +6602,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://cdn.discordapp.com/attachments/400224227577298946/925716850820657162/Screenshot_20211229-064757.png) - ShanoaSSB
 
       -  [**5**](https://i.imgur.com/iF4CILh.jpg) - Hydrolucario7
+
+      -  [**6**](https://i.imgur.com/7MTI2WP.jpg) - EmbilianScum
 
 -  [**Laegjarn**](https://i.imgur.com/hOKktlq.png) - SentoriGunnah7046
 
@@ -10094,6 +10098,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/6nGHLky.png) - LaiLiPing
 
 -  [**Peony + Triandra (New Year's)**](https://i.imgur.com/dQ2d1ge.jpg) - dahliamoonflowers
+
+      -  [**2**](https://i.imgur.com/kjTPPhU.jpg) - 
 
 -  [**Perceval**](https://i.imgur.com/nndzdMx.png) - TankyMage
 
@@ -13704,6 +13710,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**2**](https://i.imgur.com/7K7TrwK.jpg) - Pikapals52
 
       - [**3**](https://i.imgur.com/i99TgHH.jpg) - Darjun_Ding
+
+      - [**4**](https://i.imgur.com/qIjI4JM.jpg) - EmbilianScum
 		
 -  [**Vika (Pirate)**](https://i.imgur.com/pFiVrR5.jpg) - Lathel
 
@@ -13848,6 +13856,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/xj3RWYu.png) - narzibenoucdel
 
       -  [**12**](https://i.imgur.com/KG8jyXc.png) - _Hati_05
+
+      -  [**13**](https://i.imgur.com/VsLOawm.jpg) - EmbilianScum
 
 -  [**Yune**](https://i.imgur.com/tWf1A1Y.jpg) - YorozuyaTrio
 
