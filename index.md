@@ -5475,6 +5475,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Idunn (Ascended)**](https://i.imgur.com/QBaYF6W.jpg) - BreakfastMint
 
+-  [**Ignatz (Winter)**](https://i.imgur.com/3q10mXq.jpg) - TiniestManatee
+
 -  [**Igrene**](https://i.imgur.com/aP7ToJF.jpg) - messFEH
 
       -  [**2**](https://preview.redd.it/c6as5i0b7pk41.jpg?width=431&format=pjpg&auto=webp&s=af202daf4f8ba39ed3915e7a1a52f8dee425a6ca) - smash_fanatic
@@ -6590,6 +6592,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**50**](https://i.imgur.com/SBAZjMM.jpg) - Hydrolucario7
 
       -  [**51**](https://i.imgur.com/eeQ2b1D.png) - A_Splash_of_Citrus
+
+      -  [**52**](https://i.imgur.com/Kkjo8h4.jpg) - Mercuricalis
 
 -  [**L'Arachel (Halloween)**](https://i.imgur.com/GHDMby5.png) - PagePyralis
 
