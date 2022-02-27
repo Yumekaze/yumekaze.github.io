@@ -595,7 +595,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://cdn.discordapp.com/attachments/400224227577298946/904760392255930409/Screenshot_20211101-115434.png) - ShanoaSSB
 
-      -  [**17**](https://i.imgur.com/CmBeM10.jpg) - Grade-AMasterpiece
+      -  [**17**](https://cdn.discordapp.com/attachments/702009335542448128/947297836335235092/Screenshot_20220226-185842_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
       
       -  [**18**](https://i.imgur.com/yrM0hEb.jpg) - Skullsmasha
 
@@ -1298,6 +1298,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**67**](https://i.imgur.com/dydj6lq.jpeg) - SorcererHex
 
       -  [**68**](https://i.imgur.com/imjOWOS.jpg) - Kaiayos
+
+      -  [**69**](https://cdn.discordapp.com/attachments/702009335542448128/947297836112941106/Screenshot_20220226-185932_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
 -  [**Caeda (Bride)**](http://i.imgur.com/G5MvAro.jpg) - exxit5408
 
@@ -4213,6 +4215,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**72**](https://i.imgur.com/tg5eUOB.png) - LeoLion989
 
+      -  [**73**](https://cdn.discordapp.com/attachments/702009335542448128/947297834686881862/Screenshot_20220226-190125_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
+
 -  [**Fae (Winter)**](https://i.imgur.com/YGZhO5b.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/siJVOtj.png) - battle0tortoise
@@ -4285,7 +4289,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://cdn.discordapp.com/attachments/420965765462753283/529034750594383873/image0.png) - PokemonCrazy
 
-      -  [**22**](https://imgur.com/a/KMk8j0q) - Grade-AMasterpiece
+      -  [**22**](https://cdn.discordapp.com/attachments/702009335542448128/947297835391516672/Screenshot_20220226-190104_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
       -  [**23**](https://imgur.com/1mmJsa6) - Neon-Bjorn
 
@@ -4403,7 +4407,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/lQFbuqx.png) - Geeene
 
-      -  [**5**](https://i.imgur.com/HvXSDyt.jpg) - Grade-AMasterpiece
+      -  [**5**](https://cdn.discordapp.com/attachments/702009335542448128/947297835177623592/Screenshot_20220226-190041_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
       
       -  [**6**](https://i.imgur.com/gvllp1p.jpg) - YuvonGrohiik
       
@@ -5953,7 +5957,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/xxfocvE.jpg) - CMobarley
 
-      -  [**10**](https://i.imgur.com/s33joky.jpg) - Grade-AMasterpiece
+      -  [**10**](https://cdn.discordapp.com/attachments/702009335542448128/947297834955333652/Screenshot_20220226-190116_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
       -  [**11**](https://i.imgur.com/AvFWZWN.png) - aeoluz_99
 
@@ -6136,6 +6140,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**44**](https://media.discordapp.net/attachments/889475206081560646/923685015739576360/IMG_5400.png?width=496&height=883) - Red_Demons_Dragon
 
       -  [**45**](https://i.imgur.com/vf62B8U.jpg) - deoxys_101993
+
+      -  [**46**](https://cdn.discordapp.com/attachments/702009335542448128/947297834468790282/Screenshot_20220226-190208_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
 -  [**Kagero (Hares at the Fair)**](https://i.imgur.com/DDPWUna.png) - Afrogdite
 
@@ -6422,6 +6428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**35**](https://i.imgur.com/T3LQrqg.jpg) - Toluthin
 
       -  [**36**](https://i.imgur.com/IyZjD7L.jpg) - Mercuricalis
+
+      -  [**37**](https://cdn.discordapp.com/attachments/702009335542448128/947297834229710918/Screenshot_20220226-190233_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
 -  [**Kliff**](https://i.imgur.com/y20b8wm.png) - BlueIsForPlayers
 
@@ -11521,6 +11529,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/hNRCTex.jpg) - a_melonbunny
 
+      -  [**13**](https://cdn.discordapp.com/attachments/702009335542448128/947297835882258492/Screenshot_20220226-190019_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
+
 -  [**Sanaki (Bridal)**](https://i.imgur.com/P5wcNnn.png) - penguinzrock
 
       -  [**2**](https://i.imgur.com/FhwIJi1.jpg) - dirtysmall
@@ -12188,6 +12198,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/6rF3o32.jpg) - Zuo_Zhuan
 
       -  [**14**](https://i.imgur.com/uIbp2Y3.jpg) - Skyliner14
+
+      -  [**15**](https://cdn.discordapp.com/attachments/702009335542448128/947297835639001168/Screenshot_20220226-185921_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
 -  [**Sigurd + Deirdre (Soiree)**](https://i.imgur.com/bLOagxT.jpg) - JdiJwa
 
