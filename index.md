@@ -1735,7 +1735,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/bHtimkP.jpg) - TiltControls
 
-      -  [**4**](https://i.imgur.com/UFSwULo.jpg) - SoM_best_keyblade
+      -  [**4**](https://i.imgur.com/3p8kf8Y.png) - SoM_best_keyblade
 
 -  [**Cecilia**](https://i.imgur.com/Hy9uEzP.png) - Lucille_FE
 
@@ -3129,7 +3129,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/oRMfq65.png) - Gotta-Snatch-Em-All
 
-      -  [**3**](https://i.imgur.com/4U4PLcG.png) - af-fx-tion
+      -  [**3**](https://i.imgur.com/GNnpgEM.jpg) - af-fx-tion
 
 -  [**Dorothea (Summer)**](https://i.redd.it/y4xr9gxpvkb71.jpg) - Wingcapx
 
@@ -5435,7 +5435,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/VegxKt2.png) - edgy_thing
 
--  [**Hrid (New Years)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
+      -  [**5**](https://i.imgur.com/dVx51xf.jpg) - wat-dha-fak
+
+-  [**Hrid (New Year's)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
 
 -  [**Hubert**](https://i.imgur.com/3WoVRZV.png) - yulanan
 
@@ -6426,6 +6428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/KjGMw5d.jpg) - 360spinfish
 
       -  [**4**](https://i.imgur.com/KAzYJWQ.jpg) - MetaTriforce
+
+      -  [**5**](https://i.imgur.com/7d7n74B.jpg) - neralily
       
 -  [**Knoll**](https://i.imgur.com/ctllIzM.png) - kieku1
 
@@ -8484,6 +8488,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/orjxTdC.png) - Tollomer
 
       -  [**15**](https://i.imgur.com/F8pMDIa.png) - souicune
+
+      -  [**16**](https://i.imgur.com/8BegaAE.jpg) - TheLeiss
 
 -  [**Mia**](https://i.imgur.com/K7JTwtV.jpg) - Lonignus
 
