@@ -7533,7 +7533,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/WdgIhQx.jpg) - jdotremy
 
-      -  [**16**](https://cdn.discordapp.com/attachments/753796194832220171/931378163035033670/IMG_1031.png) - scarletflowers
+      -  [**16**](https://cdn.discordapp.com/attachments/753796194832220171/947297331735298048/IMG_1340.png) - scarletflowers
 
       -  [**17**](https://cdn.discordapp.com/attachments/702009335542448128/947295036104642600/IMG_5941.png) - TheAlondite
 
@@ -8833,7 +8833,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**36**](https://i.imgur.com/HF9XKFV.png) - MelHuney
 
-      -  [**37**](https://cdn.discordapp.com/attachments/753796194832220171/875908131081838622/image4.png) - scarletflowers
+      -  [**37**](https://cdn.discordapp.com/attachments/753796194832220171/947297330904838194/IMG_1339.png) - scarletflowers
 
       -  [**38**](https://i.imgur.com/Ffs39rQ.jpeg) - Neiooking
 
