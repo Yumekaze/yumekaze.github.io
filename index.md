@@ -2511,6 +2511,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**66**](https://i.imgur.com/6zD9fQW.jpg) - TheCaptureX
 
+      -  [**67**](https://cdn.discordapp.com/attachments/702009335542448128/947295033718079508/IMG_5944.png) - TheAlondite
+
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/lk65gt9.jpg) - lucun
@@ -7533,6 +7535,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://cdn.discordapp.com/attachments/753796194832220171/931378163035033670/IMG_1031.png) - scarletflowers
 
+      -  [**17**](https://cdn.discordapp.com/attachments/702009335542448128/947295036104642600/IMG_5941.png) - TheAlondite
+
 -  [**Lucius**](https://i.imgur.com/mQ5FQZR.jpg) - Gulassa 
 
       -  [**2**](https://i.imgur.com/Gv4zYTB.jpg) - Gokotsu
@@ -8568,6 +8572,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/Ez4bDN3.jpg) - Pyrozendot
 
       -  [**19**](https://i.imgur.com/9xAHVIZ.jpg) - Bored5437
+
+      -  [**20**](https://cdn.discordapp.com/attachments/702009335542448128/947295034754105374/IMG_5943.png) - TheAlondite
 
 -  [**Micaiah (Festival in Hoshido)**](https://imgur.com/nEHL5Ts) -  dirtysmall
 
@@ -13995,7 +14001,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/1ZTGM5L.jpg) - PkPhreak_official
 
-      -  [**6**](https://imgur.com/DZ6LRAv) - TheAlondite
+      -  [**6**](https://cdn.discordapp.com/attachments/702009335542448128/947295035458740254/IMG_5942.png) - TheAlondite
 
       -  [**7**](https://i.imgur.com/wWTwIEl.png) - RisenLazarus
 
