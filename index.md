@@ -1489,11 +1489,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/HxEeMKK.png) - n_kaze_
 
-      -  [**8**](https://i.imgur.com/rblh7B0.jpg) - RestlessRoman
+      -  [**8**](https://i.imgur.com/NNHoUrL.jpg) - RestlessRoman
 
       -  [**9**](https://i.imgur.com/hXNNb9o.jpg) - FearDubh
 
--  [**Camilla (New Years)**](https://i.imgur.com/pKfUkLi.png) - coloredcadence
+-  [**Camilla (New Year's)**](https://i.imgur.com/pKfUkLi.png) - coloredcadence
 
       -  [**2**](https://i.imgur.com/jP5LEhu.jpg) - ZephyrRC
 
@@ -1533,7 +1533,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/n36S4or.jpg) - MrStreeter
 
-      -  [**5**](https://i.imgur.com/KjJWlHi.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/Plk0qfY.jpg) - RestlessRoman
 
 -  [**Camilla (Hot Spring)**](https://i.imgur.com/7yPlDN5.png) - Designates
 
@@ -5189,7 +5189,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/KU3yTNG.jpg) - PkPhreak_official
 
-      -  [**8**](https://i.imgur.com/bh13GCQ.jpg) - RestlessRoman
+      -  [**8**](https://i.imgur.com/tG6pW5L.jpg) - RestlessRoman
 
       -  [**9**](https://i.imgur.com/MbJcrsk.png) - WRECK-IT-MUNDO
 
@@ -7925,7 +7925,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://cdn.discordapp.com/attachments/889475206081560646/923685029681463337/IMG_5399.png) - Red_Demons_Dragon
 
-      -  [**4**](https://i.imgur.com/V4lXfu7.png) - RestlessRoman
+      -  [**4**](https://i.imgur.com/qbM7GR4.jpg) - RestlessRoman
 
       -  [**5**](https://i.imgur.com/5rfALun.jpg) - grassyterrain
 
@@ -13936,6 +13936,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/1128Q47.jpg) - Rabbytt
 
 -  [**Yen'fay**](https://i.imgur.com/Rvc7fLs.png) - Blizzardthree
+
+      -  [**2**](https://i.imgur.com/WJhC9E9.jpg) - TiltControls
 
 -  [**Ylgr**](https://i.imgur.com/XNNGAY0.png) - kaoru-matsubara
 
