@@ -1313,6 +1313,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Caeda (Young)**](https://i.imgur.com/QixS9iA.jpg) - jdotremy
 
+-  [**Caeda (Legendary)**](https://i.imgur.com/w5EARmQ.jpg) - FestiveOverture
+
 -  [**Caellach**](https://cdn.discordapp.com/attachments/702009335542448128/810406558416109598/Screenshot_20210214-180224.png) - Ryzer28
 
       -  [**2**](https://i.imgur.com/8kdblc3.jpg) - Emperor_Polybius
@@ -11121,9 +11123,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**28**](https://i.imgur.com/7sSVTHD.png) - A_Splash_of_Citrus
 
-[**Robin (F Fallen Hero) (Halloween)**](https://i.imgur.com/l92paoj.png) - PM_ME_LEGIT_ANYTHING
+-  [**Robin (F Fallen Hero) (Halloween)**](https://i.imgur.com/l92paoj.png) - PM_ME_LEGIT_ANYTHING
 
    -  [**2**](https://i.imgur.com/y0mQYEi.jpg) - jdotremy
+
+-  [**Robin (F Valentine's)**](https://i.imgur.com/gvQUR3N.jpg) - DoveCannon
 
 -  [**Roderick**](https://i.imgur.com/6YL47MQ.jpg) - oPlaiD 
 
