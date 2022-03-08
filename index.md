@@ -1355,7 +1355,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/weTwoA8.jpg) - tamminhvtkg
 
-      -  [**8**](https://i.imgur.com/zUqAv6c.png) - Luis_lara12345
+      -  [**8**](https://i.imgur.com/nrewk6O.png) - Luis_lara12345
 
 -  [**Camilla**](http://i.imgur.com/ypgFWKZ.png) - paulomei
 
@@ -1945,7 +1945,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://cdn.discordapp.com/attachments/334554496434700289/721715839769772152/image0.png) - Glaceon88
       
-      -  [**6**](https://i.imgur.com/F3C9pJq.png) - elederanjo26
+      -  [**6**](https://i.imgur.com/sVDNuR7.png) - elederanjo26
 
 -  [**Cherche**](http://i.imgur.com/2zwB614.jpg) - ZephyrRC 
 
@@ -2276,6 +2276,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/aOsmZvo.jpg) - MrFail101
 
       -  [**23**](https://i.imgur.com/Cs80Vsk.png) - Nintentoast
+
+      -  [**24**](https://i.imgur.com/cfbIlOT.jpg) - Next-Cause098
 
 -  [**Clarine**](https://i.imgur.com/lQfCVPvr.jpg) - Travasty 
 
@@ -4670,6 +4672,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/mdJY6zS.png) - souicune
 
       -  [**18**](https://i.imgur.com/mB4bClp.png) - BenNegify
+
+      -  [**19**](https://media.discordapp.net/attachments/537420602466762772/948467252125122590/IMG_7144.png) - Florina_Best_Girl
 
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
@@ -8755,6 +8759,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**4**](https://i.imgur.com/75a4CAH.png) - Totsutei
 
+     -  [**5**](https://i.imgur.com/vtZjfP4.jpg) - Metroplex7
+
 -  [**Mirabilis**](https://i.imgur.com/SSLl3YT.jpg) - Slurpuffilicious
 
      -  [**2**](https://i.imgur.com/CQwd3HU.png) - LeoLion989
@@ -9122,6 +9128,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/B4lLlcv.jpg) - 8bitowners
 
 -  [**Nanna (Scion)**](https://i.imgur.com/RZFCBmL.png) - mcoyne12
+
+      -  [**2**](https://i.imgur.com/c4Op0q5.jpg) - Metroplex7
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
 
@@ -14040,6 +14048,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ylgr**](https://i.imgur.com/XNNGAY0.png) - kaoru-matsubara
 
       -  [**2**](https://i.imgur.com/Ni6DNQM.png) - Aaronwebber9
+
+      -  [**3**](https://i.imgur.com/LKLoUAy.jpg) - Metroplex7
 
 -  [**Ylgr (Summer)**](https://i.imgur.com/DLZAM3L.png) - samatoa
 
