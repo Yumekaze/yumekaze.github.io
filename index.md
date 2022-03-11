@@ -1088,6 +1088,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/TwUEEIB.jpg) - Aromantic_Benzene
       
       -  [**9**](https://i.imgur.com/BnWWVEn.jpg) - Stalkos
+
+      -  [**10**](https://i.imgur.com/2lWB0Ka.jpg) - Xenavire
       
 -  [**Bramimond**](https://i.imgur.com/BiaF9WQ.jpg) - SuitandTyrogue1
 
@@ -5229,13 +5231,15 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/tG6pW5L.jpg) - RestlessRoman
 
-      -  [**9**](https://i.imgur.com/MbJcrsk.png) - WRECK-IT-MUNDO
+      -  [**9**](https://i.imgur.com/PG8I6Ko.jpg) - WRECK-IT-MUNDO
 
 -  [**Hector (Love Abounds)**](https://i.imgur.com/UuG775x.png) - Nyhmsical
 
       -  [**2**](https://i.imgur.com/C1xXADi.jpg) - PkPhreak_official
 
       -  [**3**](https://i.imgur.com/heaktw5.png) - sisaac_nouise
+
+      -  [**4**](https://i.imgur.com/shVpGvI.jpg) - WRECKT-IT-MUNDO
 
 -  [**Hector (Legendary)**](https://i.imgur.com/Q4ShOJW.jpg) - euphemea
 
@@ -5267,6 +5271,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/hlcTQon.png) - Latibello
 
+      -  [**16**](https://i.imgur.com/MpUehQF.jpg) - WRECK-IT-MUNDO
+
 -  [**Hector (Brave)**](https://i.imgur.com/JSO4HsD.jpg) - WholeLottaThangs
 
       -  [**2**](https://imgur.com/53Qg08f) - Nhyem
@@ -5287,7 +5293,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**10**](https://i.imgur.com/wPfgiIS.jpg) - Zerimar_
 
-      -  [**11**](https://i.imgur.com/xVkSvBL.png) - WRECK-IT-MUNDO
+      -  [**11**](https://i.imgur.com/SZmQ36j.jpg) - WRECK-IT-MUNDO
 
       -  [**12**](https://i.imgur.com/8uyO8HZ.jpg) - JdiJwa
 
@@ -11624,6 +11630,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/xFqjx8y.jpg) - JdiJwa
 
       -  [**5**](https://i.imgur.com/FulebKw.jpg) - 8bitowners
+
+      -  [**6**](https://i.imgur.com/rEycddr.jpg) - Boramis
       
 -  [**Selena (Sacred Stones)**](https://i.imgur.com/BX9ComW.jpg) - aiasthegreatest
 
