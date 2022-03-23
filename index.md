@@ -735,6 +735,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Balthus**](https://i.imgur.com/onLfuUh.jpg) - TiltControls
 
+      -  [**2**](https://i.imgur.com/fv7W3XC.png) - PrisonerLeet
+
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/7cWNbsq.jpg) - Bored5437
@@ -1322,6 +1324,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**69**](https://cdn.discordapp.com/attachments/702009335542448128/947297836112941106/Screenshot_20220226-185932_Fire_Emblem_Heroes.jpg) - Grade-AMasterpiece
 
       -  [**70**](https://i.imgur.com/2LCkghV.jpg) - Tery_
+
+      -  [**71**](https://i.imgur.com/oJic3LZ.png) - PrisonerLeet
 
 -  [**Caeda (Bride)**](http://i.imgur.com/G5MvAro.jpg) - exxit5408
 
@@ -8831,6 +8835,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/jXGxoQw.jpg) - Alternative-Draft-82
 
+      -  [**11**](https://i.imgur.com/ITm7Tlf.png) - PrisonerLeet
+
 -  [**Minerva (Spring)**](https://i.imgur.com/IKKtqtZ.jpg) - RestlessRoman
 
       - [**2**](https://i.imgur.com/zOaFOuB.png) - Eclahn
@@ -10845,6 +10851,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**74**](https://i.imgur.com/zKYp2Ny.png) - Arklaine
 
+      -  [**75**](https://i.imgur.com/9h5gAO0.png) - PrisonerLeet
+
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
       -  [**2**](https://i.imgur.com/PT7BoiE.jpg) - Kyuresai
@@ -11158,6 +11166,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**56**](https://i.ibb.co/wSGpgJn/09-AD3-C1-F-F6-E1-44-F7-B916-605-B41-CDBED9.png) - Earthliving
 
       -  [**57**](https://i.imgur.com/lsXgFLo.png) - RoseCelebi
+
+      -  [**58**](https://i.imgur.com/mJjPkmN.png) - PrisonerLeet
 
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
@@ -11884,6 +11894,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**32**](https://i.imgur.com/Dvbz1sL.png) - RoseCelebi
 
       -  [**33**](https://i.imgur.com/apxOMzC.jpg) - CrystalAether
+
+      -  [**34**](https://i.imgur.com/NKh77AQ.png) - PrisonerLeet
       
 -  [**Seliph (Legendary)**](https://i.imgur.com/KqxRlfi.jpg) - roflwaffler
 
