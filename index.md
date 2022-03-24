@@ -733,6 +733,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Azura + Leanne (Hatari)**](https://i.imgur.com/FQnBzlO.png) - MerricisBestBoy
 
+      -  [**2**](https://images-ext-2.discordapp.net/external/BZw29QXTsLn-Rw6Z_JR4HyCCzJMNU76Yy2UGDlTO60E/https/i.imgur.com/Fhg3pP5h.jpg?width=325&height=650) - Random546
+
 -  [**Balthus**](https://i.imgur.com/onLfuUh.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/fv7W3XC.png) - PrisonerLeet
