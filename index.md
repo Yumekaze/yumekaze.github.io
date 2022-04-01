@@ -9245,6 +9245,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/DlC6uP6.jpg) - CrystalAether
 
+-  [**Nanna (Legendary)**](https://i.imgur.com/PpZt7of.png) - Kyrroti
+
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
 
       -  [**2**](https://i.imgur.com/4MDuQ9c.png) - Trowa001
