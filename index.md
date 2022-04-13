@@ -1091,6 +1091,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**31**](https://i.imgur.com/47HYqrI.jpg) - Geomint
 
+      -  [**32**](https://i.imgur.com/OggqCPk.png) - af-fx-tion
+
 -  [**Brady**](https://i.imgur.com/MNHRTq6.jpg) - ThatKoolKidOverThere
 
       -  [**2**](https://i.imgur.com/v2UaHuF.png) - MegaBanettes
