@@ -14048,6 +14048,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/IRW3DUN.jpg) - Rabbytt
 
       -  [**3**](https://i.imgur.com/YKyOid3.jpg) - Splarghy
+
+-  [**Tine**](https://i.imgur.com/zvsHkKI.jpg) - LordDmoney
 		
 -  [**Titania**](http://i.imgur.com/QoM5BR6.png) - exxit5408	
 
