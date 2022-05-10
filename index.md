@@ -161,7 +161,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**22**](https://i.imgur.com/IyiZviL.jpg) - Metroplex7
 
-     -  [**23**](https://i.imgur.com/GtrMVjn.jpg) - EmbilianScum
+     -  [**23**](https://i.imgur.com/GtrMVjn.jpg) - EmblianScum
 
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
@@ -251,7 +251,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://media.discordapp.net/attachments/727349043193315341/938439808391458836/Screenshot_20211007-131236_Fire_Emblem_Heroes.jpg) - Thehalohedgehog
 
-      -  [**13**](https://i.imgur.com/JLUI2Vz.jpg) - EmbilianScum
+      -  [**13**](https://i.imgur.com/JLUI2Vz.jpg) - EmblianScum
 
 -  [**Ares**](https://i.imgur.com/OsBdBHA.png) - penguinzrock
 
@@ -1916,6 +1916,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ced**](https://i.imgur.com/aacelga.png) - Sidoking
 
       -  [**2**](https://i.imgur.com/Kqoyre5.png) - RoseCelebi
+
+      -  [**3**](https://i.imgur.com/qVXepQa.jpeg) - JdiJwa
 
 -  [**Celica**](https://i.imgur.com/EUzpvWF.png) - exxit5408
 
@@ -3827,9 +3829,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/R0HcH5c.jpg) - CrystalAether
 
+      -  [**6**](https://i.imgur.com/ZkIn4CW.jpg) - Ayra4life
+
 -  [**Eleonora**](https://i.imgur.com/4SCIBVQ.jpg) - Diligent_Slacker
 
       -  [**2**](https://i.imgur.com/4i5KCaB.jpg) - jdotremy
+
+-  [**Elimine**](https://i.imgur.com/qCvDLtU.jpeg) - JdiJwa
 
 -  [**Elincia**](https://i.imgur.com/DQAJAVt.png) - exxit5408
 
@@ -9029,7 +9035,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**7**](https://i.imgur.com/lusrKb2.jpeg) - stephenthatfoste
 
-     -  [**8**](https://imgur.com/a/IH8mJnK) - EmbilianScum
+     -  [**8**](https://imgur.com/a/IH8mJnK) - EmblianScum
 
 -  [**Mirabilis**](https://i.imgur.com/SSLl3YT.jpg) - Slurpuffilicious
 
@@ -11949,6 +11955,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/GRahm5Y.jpg) - is_Maestro
 
+-  [**Scathach**](https://i.imgur.com/F4NVYZI.jpeg) - JdiJwa
+
 -  [**Sedgar**](https://i.imgur.com/5PEc8wr.png) - souicune
 
       -  [**2**](https://i.imgur.com/c2dySgC.jpg) - CrystalAether
@@ -14299,7 +14307,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.ibb.co/RStB3N4/50-A21618-6697-47-CC-B581-C65-FBC74-EEC8.png) - Earthliving
 
-      -  [**3**](https://imgur.com/a/L7HlIXa) - EmbilianScum
+      -  [**3**](https://imgur.com/a/L7HlIXa) - EmblianScum
 
 -  [**Veronica + Xander (Pirate)**](https://i.imgur.com/Cvz2pBG.jpg) - RainbowThePheonix
 
