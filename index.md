@@ -1922,6 +1922,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**21**](https://i.imgur.com/CNKBvea.jpg) - BattlleTendency
 
       -  [**22**](https://i.imgur.com/Rooegjn.png) - Gamer178
+
+-  [**Cecilia (Bridal)**](https://i.imgur.com/Z7IuyKH.png) - Blizzardthree
       
 -  [**Ced**](https://i.imgur.com/aacelga.png) - Sidoking
 
@@ -7014,6 +7016,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/64aDvWd.png) - october_5
 
       -  [**3**](https://i.imgur.com/JnAqbwx.jpeg) - SorcererHex
+
+     -   [**4**](https://i.imgur.com/T4hSA1p.jpg) - HeavenlySeraph
 
 -  [**Laevatein**](https://i.imgur.com/9TMit7r.png) - SentoriGunnah7046
 
