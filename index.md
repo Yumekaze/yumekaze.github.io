@@ -5343,6 +5343,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**25**](https://i.imgur.com/qLKS2g7.jpg) - Tery_
 
+-  [**Hapi**](https://i.imgur.com/kwmlHwv.png) - ShadowMLuigi
+
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
       -  [**2**](https://i.imgur.com/MI1o9KO.jpg) - PM_ME_YOUR_WHALE
@@ -10797,6 +10799,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/VfUFBfi.png) - BlazeBloom
 
+      -  [**13**](https://i.imgur.com/53M6I5T.png) - ShadowMLuigi
+
 -  [**Quan**](https://i.imgur.com/QTMxaJ4.jpg) - Xuanwu7
 
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
@@ -13844,6 +13848,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/u7k7cf4.png) - Zigoon
 
       -  [**15**](https://i.imgur.com/PcD2Ugn.jpg) - Niqkel
+
+      -  [**16**](https://i.imgur.com/9l9c1qh.png) - ShadowMLuigi
 
 -  [**Thrasir**](https://i.imgur.com/mCRNkDz.png) - fjorm_book_ii
 
