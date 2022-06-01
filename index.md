@@ -6497,6 +6497,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Karin**](https://i.imgur.com/hbwoDBZ.jpg) - CorporalDarkness
 
+      -  [**2**](https://media.discordapp.net/attachments/753794131276595291/981180953202393089/IMG_1760.png?width=362&height=644) - BobbyYukitsuki
+
 -  [**Karla**](https://i.imgur.com/NH0PNQb.jpg) - iamdarthyoshi
 
       -  [**2**](https://i.imgur.com/lnvFis6.jpg) - MirrorBlink
