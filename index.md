@@ -1924,6 +1924,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/Rooegjn.png) - Gamer178
 
 -  [**Cecilia (Bridal)**](https://i.imgur.com/Z7IuyKH.png) - Blizzardthree
+
+      -  [**2**](https://i.imgur.com/oPIplUf.jpg) - KnifeToMeetYou_
+
+      -  [**3**](https://i.imgur.com/LdkrrZb.png) - MajorasKatana
       
 -  [**Ced**](https://i.imgur.com/aacelga.png) - Sidoking
 
@@ -4139,13 +4143,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/sfNqMZ8.jpg) - dryomi_23
 
-      -  [**7**](https://i.imgur.com/hHsof41.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**7**](https://i.imgur.com/6XsK1wG.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**8**](https://i.imgur.com/ZEgMnIy.jpg) - MrStreeter
 
 -  [**Ephraim (Winter)**](https://i.imgur.com/B9EAeEZ.jpg) - Demestro
 
-      -  [**2**](https://i.imgur.com/TQRD1CQ.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**2**](https://i.imgur.com/sCWCYeI.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**3**](https://i.imgur.com/cHn6BaD.png) - Katerpu
 
@@ -5006,6 +5010,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/NVXHE8z.png) - ShadowMLuigi
 
       -  [**6**](https://i.imgur.com/br10szB.png) - RestlessRoman
+
+      -  [**7**](https://i.imgur.com/Me9tQlI.jpg) - Chilly_the_Snowman
       
 -  [**Geese (Pirate)**](https://i.imgur.com/e8OJGyb.jpg) - JdiJwa
 
@@ -9078,6 +9084,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Minerva (Spring)**](https://i.imgur.com/IKKtqtZ.jpg) - RestlessRoman
 
       - [**2**](https://i.imgur.com/zOaFOuB.png) - Eclahn
+
+      - [**3**](https://i.imgur.com/RdUgwbl.jpg) - KnifeToMeetYou_
       
 -  [**Miranda**](https://i.imgur.com/1fkaA1t.jpg) - chaosangel
 
@@ -13650,6 +13658,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/RDL7Rf3.png) - shipperondeck
 
 -  [**Tana (Young)**](https://i.imgur.com/Qgd6QXC.jpg) - AbyssiHu
+
+-  [**Tanith**](https://i.imgur.com/CyGEqMl.png) - MajorasKatana
       
 -  [**Tanya**](https://i.imgur.com/YnxYmPt.jpg) - JdiJwa
 
@@ -14428,6 +14438,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/bTbekcK.jpeg) - SorcererHex
 
       -  [**8**](https://i.imgur.com/Gl1Bpy4.png) - A_Splash_of_Citrus
+
+      -  [**9**](https://preview.redd.it/l9tv810v17391.jpg?width=373&auto=webp&s=49bd985da06a22f7e944a2554ed12b015c2f0aed) - Millenialay2002
 
 -  [**Virion**](https://i.redditmedia.com/L5a72uLPpeuyONaBKpQE-qYywRHTaulCdqF31ViyClA.png?w=432&s=79d2c62d53980a386ef50b531d5f419c) - Kinkazooie 	
 
