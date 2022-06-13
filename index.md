@@ -1701,6 +1701,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://preview.redd.it/1gkg20hhohc71.png?width=345&auto=webp&s=01b67c3d8762b48e824e4f79a80b8f8ebbdce707) - lizardsbelike
 
+      -  [**6**](https://i.imgur.com/KD67q6a.png) - skeddy-
+
 -  [**Cath**](https://i.imgur.com/JwkOPw7.png) - MisoSoup247
 
       -  [**2**](https://i.imgur.com/MA9tHDe.png) - ShadowMLuigi
@@ -9515,6 +9517,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/7cgcbsy.jpg) - Jagoslaw
 
+      -  [**7**](https://i.imgur.com/XzwW5P0.jpg) - DurgenTheFirst
+
 -  [**Nanna (Legendary)**](https://i.imgur.com/PpZt7of.png) - Kyrroti
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
@@ -9607,7 +9611,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/3H0vosA.jpg) - NephsDeliciousLegs
       
-      -  [**12**](https://i.imgur.com/EoXmT9o.png) - DurgenTheFirst
+      -  [**12**](https://i.imgur.com/J4m0ELQ.jpg) - DurgenTheFirst
       
       -  [**13**](https://i.imgur.com/vcKDZ9l.jpg) - Menetone
       
@@ -10992,6 +10996,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**48**](https://i.imgur.com/wZB7t7D.png) - LeoLion989
 
       -  [**49**](https://i.imgur.com/sVBDkLp.jpeg) - Green_Uncle
+
+      -  [**50**](https://i.imgur.com/7e0zz7L.jpg) - DurgenTheFirst
 
 -  [**Rebecca**](https://i.imgur.com/e3NZG26.jpg) - dcho1 
 
@@ -14399,6 +14405,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/913242707533656134/image0.png) - BobbyYukitsuki
 
+      -  [**3**](https://i.imgur.com/SH79GDH.jpg) - DurgenTheFirst
+
 -  [**Velouria**](https://i.imgur.com/w7CmDTz.jpg) - suicidal-ghost
 
       -  [**2**](https://i.imgur.com/jDuFTlL.jpg) - MrTurais
@@ -14492,6 +14500,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/yWqF0Hz.png) - MisoSoup247
 
       -  [**10**](https://i.imgur.com/iu5nV0F.png) - PM_INCINEROAR_DICK
+
+-  [**Volke**](https://i.imgur.com/fMK5pKG.jpg) - DurgenTheFirst
 
 -  [**Vyland**](https://i.imgur.com/g0C7fsU.jpeg) - JdiJwa
 
@@ -14695,7 +14705,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**13**](https://i.imgur.com/HW2Xmf7.jpg) - maxdaboss
       
-      -  [**14**](https://i.imgur.com/isfxKzB.png) - DurgenTheFirst
+      -  [**14**](https://i.imgur.com/1INAhGl.jpg) - DurgenTheFirst
       
       -  [**15**](https://i.imgur.com/P8eVNVb.jpg) - SuitandTyrogue1
       
