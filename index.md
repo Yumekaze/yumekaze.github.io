@@ -3045,6 +3045,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://media.discordapp.net/attachments/727349043193315341/938433511898099722/Screenshot_20220131-153133_Fire_Emblem_Heroes.jpg) - Thehalohedgehog
 
+-  [**Dagr + Nott (New Year's)**](https://i.imgur.com/NIBYjfB.jpg) - go4ino
+
 -  [**Darros**](https://i.imgur.com/RpSCQIx.png) - BlueFlazzer76
 
 -  [**Death Knight**](https://i.imgur.com/mxu3FiU.png) - EchoCrescent
@@ -7935,6 +7937,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/gTPRPW2.jpg) - Slurpuffilicious
 
+      -  [**3**](https://i.imgur.com/caf5SZR.png) - go4ino
+
 -  [**Lucius**](https://i.imgur.com/mQ5FQZR.jpg) - Gulassa 
 
       -  [**2**](https://i.imgur.com/Gv4zYTB.jpg) - Gokotsu
@@ -11720,6 +11724,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Ronan**](https://i.imgur.com/3LLjvuC.jpg) - JdiJwa
 
       -  [**2**](https://i.imgur.com/zvmQY0z.jpg) - yheeyhaw
+
+-  [**Roshea**](https://i.imgur.com/ZygjNOP.png) - Blizzardthree
 
 -  [**Ross**](https://i.imgur.com/7ve6XSZ.jpg) - Belligero_
 
