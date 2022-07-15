@@ -2479,6 +2479,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/pUWh9YA.jpg) - TiltControls
 
+      -  [**4**](https://i.imgur.com/KveSZnc.png) - SolokOriginel
+
 -  [**Clive**](https://cdn.discordapp.com/attachments/536758779971239947/577859888395583509/Screenshot_20190514-100814.png) - roy2king
 
       -  [**2**](https://imgur.com/a/8piIvqA) - VagueClive
@@ -3851,6 +3853,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://media.discordapp.net/attachments/727349043193315341/938433665921331290/Screenshot_20210817-193418_Fire_Emblem_Heroes.jpg) - Thehalohedgehog
 
+      -  [**4**](https://i.imgur.com/7uDbKwv.png) - SolokOriginel
+
 -  [**Eitri**](https://i.redd.it/aw0kyyi55r281.png) - Paiguy7
 
       -  [**2**](https://i.imgur.com/PtPrlT5.jpg) - KHNephrite
@@ -4597,7 +4601,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/DkdnJ7H.png) - Gamer178
 
-      -  [**4**](https://cdn.discordapp.com/attachments/435165187117416469/872580022748201002/unknown.png) - SolokOriginel
+      -  [**4**](https://i.imgur.com/zKhYYhE.png) - SolokOriginel
 
       -  [**5**](https://i.imgur.com/SWqGdRD.jpeg) - Neiooking
 
@@ -10125,6 +10129,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/8zorvsB.jpg) - Alternative-Draft-82
 
+      -  [**12**](https://i.imgur.com/OZCeSPO.png) - SolokOriginel
+
 -  [**Nott**](https://i.ibb.co/BnN8RKK/Nott.jpg) - NohrianScumbag
 
       -  [**2**](https://i.imgur.com/JoNVksY.png) - october_5
@@ -11257,6 +11263,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**75**](https://i.imgur.com/9h5gAO0.png) - PrisonerLeet
 
+      -  [**76**](https://i.imgur.com/byAw9cS.png) - SolokOriginel
+
 -  [**Reinhardt (WoT)**](https://i.imgur.com/f5yxej5.png) - penguinzrock
 
       -  [**2**](https://i.imgur.com/PT7BoiE.jpg) - Kyuresai
@@ -11656,6 +11664,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/w2mgRV1.jpg) - TaihousTaihou
 
       -  [**30**](https://i.imgur.com/hWeDUcF.jpg) - IchKannDasN1cht
+
+      -  [**31**](https://i.imgur.com/3cVvpIh.png) - SolokOriginel
 
 -  [**Robin (F Fallen Hero)**](https://i.imgur.com/AsZInT3.jpg) - Kami-San
 
@@ -12532,6 +12542,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Shamir (Ninja)**](https://i.imgur.com/E27WQjy.jpg) - zedabo
 
       - [**2**](https://i.imgur.com/24d7T1l.png) - NohrianScumbag
+
+      - [**3**](https://i.imgur.com/kDog1XU.png) - SolokOriginel
 
 -  [**Shanna**](http://i.imgur.com/iDzD1QR.png) - StirFryTuna 
 
@@ -13589,7 +13601,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/2gAIMhk.jpg) - Bored5437
 
-      -  [**16**](https://media.discordapp.net/attachments/435165187117416469/872583641807589376/unknown.png?width=400&height=669) - SolokOriginel
+      -  [**16**](https://i.imgur.com/QthyVCA.png) - SolokOriginel
 
       -  [**17**](https://i.imgur.com/yighRe8.jpeg) - Neiooking
 
