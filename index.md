@@ -865,6 +865,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/Wsiac3p.jpg) - Jagoslaw
 
+      -  [**4**](https://i.imgur.com/J7SHPVq.png) - maxblade33
+
 -  [**Berkut**](http://i.imgur.com/1mBnyt8.jpg) - Symphawnics
 
       -  [**2**](https://i.imgur.com/0gVPm9i.png) - aiasthegreatest
