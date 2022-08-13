@@ -4965,7 +4965,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/hQAmpQs.jpg) - VeemotheeThe2nd
 
-      -  [**9**](https://i.imgur.com/wIh1HdS.png) - NiLiLox
+      -  [**9**](https://i.imgur.com/wIh1HdS.png) - NLiLox
 
 -  [**Forsyth**](https://i.imgur.com/piSr24Y.jpg) - MetaTriforce
 
@@ -5857,7 +5857,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ignatz (Winter)**](https://i.imgur.com/3q10mXq.jpg) - TiniestManatee
 
-      -  [**2**](https://i.imgur.com/0ivvEkB.png) - NiLiLox
+      -  [**2**](https://i.imgur.com/0ivvEkB.png) - NLiLox
 
       -  [**3**](https://i.imgur.com/IdXGNYj.png) - mindthetimes
 
@@ -6129,7 +6129,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/ckw5RJe.jpg) - MystyM
 
-      -  [**10**](https://i.imgur.com/4LQpj25.png) - NiLiLox
+      -  [**10**](https://i.imgur.com/4LQpj25.png) - NLiLox
 
 -  [**Ishtar**](https://i.imgur.com/TGqzBzt.jpg) - october_5
 
@@ -7787,7 +7787,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/PKkvzWk.jpg) - Slurpuffilicious
 
-      -  [**13**](https://i.imgur.com/xMs2CJv.png) - NiLiLox
+      -  [**13**](https://i.imgur.com/xMs2CJv.png) - NLiLox
 
 -  [**Lissa**](https://i.imgur.com/obFFKcU.jpg) - MegaBanettes 
 
@@ -11925,7 +11925,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/ktt2Dhl.jpg) - sigmawolf87
 
-      -  [**5**](https://i.imgur.com/4s0pw3Y.png) - NiLiLox
+      -  [**5**](https://i.imgur.com/4s0pw3Y.png) - NLiLox
       
 -  [**Ronan**](https://i.imgur.com/3LLjvuC.jpg) - JdiJwa
 
@@ -14849,7 +14849,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/kwA2Icx.png) - Gamer178
 
-      -  [**3**](https://i.imgur.com/Lc239PG.png) - NiLiLox
+      -  [**3**](https://i.imgur.com/Lc239PG.png) - NLiLox
 
 -  [**Wrys**](https://i.imgur.com/EwpRKbl.png) - athropods 
 
