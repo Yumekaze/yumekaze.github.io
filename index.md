@@ -1265,6 +1265,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Byleth (F) (Legendary)**](https://i.imgur.com/NpgWBez.jpg) - deoxys_101993
 
+-  [**Byleth (F) (Brave)**](https://cdn.discordapp.com/attachments/702009335542448128/1009613449887744100/unknown.png) - Random546
+
 -  [**Caeda**](https://i.imgur.com/W5V2TnS.png) - xMarthington
 
       -  [**2**](https://imgur.com/gallery/QEG5YL4) - FearDubh
@@ -2261,7 +2263,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/HYjIiR6.png) - falkuda
 
-      -  [**18**](https://cdn.discordapp.com/attachments/274081189894291457/817233617486610432/Screenshot_20210305_161358_com.nintendo.zaba.jpg) - Yumekaze
+      -  [**18**](https://cdn.discordapp.com/attachments/274081189894291457/1009751692260167730/Screenshot_2022-08-18-21-11-27-79_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
       -  [**19**](https://i.imgur.com/UevEcEU.jpg) - Kiloceraptor
 
@@ -2374,6 +2376,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/9mAqy0b.png) - BlackStar300
 
       -  [**3**](https://i.imgur.com/rhZiSDc.jpg) - Slurpuffilicious
+
+-  [**Chrom (Brave)**](https://cdn.discordapp.com/attachments/702009335542448128/1009752166438805574/unknown.png) - Yumekaze
+
+      -  [**2**](https://i.imgur.com/o2V7bGC.png) - BlackStar300
 
 -  [**Clair**](http://i.imgur.com/83B4t5N.png) - exxit5408
 
@@ -3280,6 +3286,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/le3K7Aw.jpg) - aqexpredator
 
       -  [**10**](https://i.imgur.com/J5tMwLs.jpg) - sitta_canadensis
+
+      -  [**11**](https://i.imgur.com/C0dQpPg.png) - dimayeon
 
 -  [**Dimitri (Fallen)**](https://i.imgur.com/qro2Xvi.jpg) - Apprehensive-Tree308
 
@@ -4807,7 +4815,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**18**](https://i.imgur.com/jhSO9GE.png) - DrBiggusDiccus
 
-      -  [**19**](https://cdn.discordapp.com/attachments/431207047715880961/531344865263353867/Screenshot_20190106-183438.jpg) - Yumekaze
+      -  [**19**](https://cdn.discordapp.com/attachments/274081189894291457/1009751692545376316/Screenshot_2022-08-18-21-11-32-14_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
       -  [**20**](https://i.imgur.com/ZJx3srt.png) - mcoyne12
 
@@ -5194,6 +5202,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/8mSuWlA.jpg) - darkmages4lyfe
 
       -  [**3**](https://i.imgur.com/lxRubfI.jpg) - Alternative-Draft-82
+
+-  [**Gonzalez**](https://drive.google.com/file/d/1uFBOwtraVgbY1J_t5Mfzcj-msb2tgoXN/view) - Important_Ad4176
 
 -  [**Gordin**](https://pbs.twimg.com/media/DOJPJXTU8AEbjYy.jpg) - SH1NJ1 
 
@@ -6213,6 +6223,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://i.imgur.com/zXe4gO0.jpg) - useless_idiot_man
 
+      -  [**17**](https://cdn.discordapp.com/attachments/274081189894291457/1009751692872515654/Screenshot_2022-08-18-21-11-36-49_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
+
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
       -  [**2**](https://i.imgur.com/s4UOR4c.png) - Berk4823
@@ -6767,6 +6779,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/dM3fpvV.png) - SonicSpeed0919
 
+      -  [**27**](https://cdn.discordapp.com/attachments/274081189894291457/1009751694613151754/Screenshot_2022-08-18-21-12-07-27_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
+
 -  [**Keaton**](https://i.imgur.com/xUTq09T.png) - Kaleochu
 
 -  [**Keaton (New Year's)**](https://i.imgur.com/929zbUf.jpg) - SiilentCry
@@ -7319,6 +7333,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/qcAn1ON.png) - mindthetimes
 
+      -  [**27**](https://i.imgur.com/wPbqYPr.png) - dimayeon
+
 -  [**Leanne**](https://i.imgur.com/sfgNgm4.jpg) - Rabbytt
 
       -  [**2**](https://cdn.discordapp.com/attachments/548002260643479567/551137175475978251/Screenshot_2019-03-02-07-21-07.png) - minatoapologist
@@ -7728,6 +7744,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**60**](https://i.imgur.com/0qUhq8t.png) - LeoLion989
 
       -  [**61**](https://i.imgur.com/lCbiZji.jpg) - Tery_
+
+      -  [**62**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693149360188/Screenshot_2022-08-18-21-11-50-07_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -8405,7 +8423,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://preview.redd.it/thndnrfkrt271.png?width=1080&format=png&auto=webp&s=726da201362d1bdb5104b204518c3bcf7691521a) - justinator119
 
-      -  [**14**](https://i.imgur.com/JpezcbL.jpg) - 
+      -  [**14**](https://i.imgur.com/JpezcbL.jpg) - Pope_Penguin
+
+      -  [**15**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693463924796/Screenshot_2022-08-18-21-11-54-15_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
 -  [**Lyon (Fallen)**](https://i.imgur.com/c3oJSYX.jpg) - Andantina
 
@@ -9132,6 +9152,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/8BegaAE.jpg) - TheLeiss
 
       -  [**17**](https://i.imgur.com/RPHXayn.png) - mindthetimes
+
+      -  [**18**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693698793482/Screenshot_2022-08-18-21-11-57-51_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
 -  [**Merric (Young)**](https://i.imgur.com/MkO022u.jpg) - GlassOtter
 
@@ -10190,6 +10212,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**99**](https://i.imgur.com/6barlo3.jpg) - TheCaptureX
 
       -  [**100**](https://i.imgur.com/9STYrs9.jpg) - deoxys_101993
+
+      -  [**101**](https://cdn.discordapp.com/attachments/274081189894291457/1009751694294401054/Screenshot_2022-08-18-21-12-03-94_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
 -  [**Nino (SF)**](https://cdn.discordapp.com/attachments/312889387631509514/454581030603587587/Screenshot_2018-06-08-19-42-08_com.nintendo.zaba.png) - rowcla
 
