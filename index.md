@@ -7623,6 +7623,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Lifis (Pirate)**](https://i.imgur.com/TbWxyQc.jpg) - Pf9877
 
+      -  [**2**](https://i.imgur.com/5FnJVsQ.png) - UsuallyImLazy
+
 -  [**Lilina**](https://i.imgur.com/KeuVFgT.jpg) - SpeedyHawk
 
       -  [**2**](http://i.imgur.com/X0uHjaG.png) - exxit5408
