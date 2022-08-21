@@ -12413,6 +12413,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/fwrtknv.jpg) - edgy_thing
 
+      -  [**3**](https://cdn.discordapp.com/attachments/702009335542448128/1010706658370003025/IMG_2568.png) - KujoQtaro
+
 -  [**Sedgar**](https://i.imgur.com/5PEc8wr.png) - souicune
 
       -  [**2**](https://i.imgur.com/c2dySgC.jpg) - CrystalAether
