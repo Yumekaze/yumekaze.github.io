@@ -7201,6 +7201,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://cdn.discordapp.com/attachments/899398539409518692/910482364810031164/Screenshot_2021-11-17-11-26-41-501_com.nintendo.zaba.jpg) - Kuraran
 
+      -  [**11**](https://cdn.discordapp.com/attachments/877525733969362964/1010862841051492435/Screenshot_20220821-114204_Fire_Emblem_Heroes.jpg) - Wingcapx
+
 -  [**Laegjarn (New Year's)**](https://imgur.com/a/ky5iHF8) - Teh2chao2
 
       -  [**2**](https://i.imgur.com/Niwxu7G.png) - HeavenlySeraph
@@ -14776,6 +14778,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/tJ5P1k8.jpg) - The_Big_ID
       
       -  [**4**](https://i.imgur.com/BU7DY1w.jpg) - s07195
+
+      -  [**5**](https://cdn.discordapp.com/attachments/702009335542448128/1011099919374880858/Screenshot_20220821-222959_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
 
 -  [**Valter**](https://i.imgur.com/h4seh8g.jpg) - ValiantDuran
 
