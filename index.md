@@ -773,6 +773,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/wA7jEHj.jpg) - Lathel
 
+      -  [**4**](https://i.imgur.com/2jN7L6K.png) - go4ino
+
 -  [**Balthus**](https://i.imgur.com/onLfuUh.jpg) - TiltControls
 
       -  [**2**](https://i.imgur.com/fv7W3XC.png) - PrisonerLeet
@@ -12600,6 +12602,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**38**](https://i.imgur.com/vVPJll1.jpg) - Tery_
       
 -  [**Seliph (Legendary)**](https://i.imgur.com/KqxRlfi.jpg) - roflwaffler
+
+-  [**Seliph (Brave)**](https://cdn.discordapp.com/attachments/573783024072654858/1011461344911953940/IMG_2573.png) - KujoQtaro
 
 -  [**Selkie**](https://cdn.discordapp.com/attachments/544239046172344322/548343494125551646/Screenshot_2019-02-21-22-29-48.png) - AureusVulpes292
 
