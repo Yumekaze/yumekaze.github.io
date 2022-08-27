@@ -6713,6 +6713,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/3dCtS70.png) - mindthetimes
 
+      -  [**8**](https://cdn.discordapp.com/attachments/786148813257441290/1012935783516229752/Screenshot_20220827-000215_Fire_Emblem_Heroes.jpg) - Secretsword229
+
 -  [**Katarina**](http://i.imgur.com/gUsH0xN.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/RNXQ0go.png) - jaesuk97
