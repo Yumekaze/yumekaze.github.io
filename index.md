@@ -11149,6 +11149,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**14**](https://i.imgur.com/WrLa8PZ.png) - BenNegify
 
+      -  [**15**](https://cdn.discordapp.com/attachments/967245762813632633/1012925239635755018/Screenshot_20220826-202209.png) - Katerpu
+
 -  [**Quan**](https://i.imgur.com/QTMxaJ4.jpg) - Xuanwu7
 
       -  [**2**](https://i.imgur.com/zWAIeUu.jpg) - JdiJwa
@@ -12702,6 +12704,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/qZzmtI8.png) - Arklaine
 
       -  [**19**](https://media.discordapp.net/attachments/222795246856044554/959771114383478824/Screenshot_20220402-125909_Fire_Emblem_Heroes.jpg) - howlinghenbane
+
+      -  [**20**](https://cdn.discordapp.com/attachments/967245762813632633/1012925239220502629/Screenshot_20220826-202041.png) - Katerpu
 
 -  [**Seth**](http://i.imgur.com/my1Sfyx.png) - exxit5408 	
 
