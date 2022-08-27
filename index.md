@@ -2735,6 +2735,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/z13uU4s.jpg) - Jagoslaw
 
+      -  [**6**](https://cdn.discordapp.com/attachments/702009335542448128/1012944938851381319/IMG_2832.png) - Itsmisterpool
+
 -  [**Cormag**](https://cdn.discordapp.com/attachments/431207047715880961/664300244950843392/CORMAG10.png) - Ryzer28
 
       -  [**2**](https://i.imgur.com/gU0PMmi.jpg) - thunderunited16
