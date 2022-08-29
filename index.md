@@ -4023,6 +4023,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/wSef6LH.png) - EpicRome23
 
+      -  [**3**](https://i.imgur.com/WtNOhy5.png) - mcoyne12
+
 -  [**Elise**](http://i.imgur.com/zUfO0AN.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/xA3odoP.jpg) - jaesuk97
@@ -9787,7 +9789,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://i.imgur.com/z6G1ELj.jpg) - CrystalAether
 
--  [**Nanna (Scion)**](https://i.imgur.com/RZFCBmL.png) - mcoyne12
+-  [**Nanna (Scion)**](https://i.imgur.com/00weKdn.png) - mcoyne12
 
       -  [**2**](https://i.imgur.com/c4Op0q5.jpg) - Metroplex7
 
@@ -9891,7 +9893,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/gvzuTrI.jpg) - raike1028
 
-      -  [**9**](https://i.imgur.com/fDABG3u.png) - mcoyne12
+      -  [**9**](https://i.imgur.com/NXTOXBm.png) - mcoyne12
 
       -  [**10**](https://i.imgur.com/tCkWXaM.png) - defrostice
 
@@ -11107,7 +11109,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://i.imgur.com/W0SYdcB.jpg) - vectorgram353
 
-      -  [**17**](https://i.imgur.com/RCWeRel.png) - mcoyne12
+      -  [**17**](https://i.imgur.com/68TFhLG.png) - mcoyne12
       
       -  [**18**](https://i.imgur.com/WX4gu6X.png) - X-pert74
       
