@@ -5726,6 +5726,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/2PEDbWA.jpg) - NohrianScumbag
 
       -  [**3**](https://i.imgur.com/TsvT8WR.png) - G-N-S
+
+      -  [**4**](https://i.imgur.com/86Mjck4.jpg) - y_th0ugh
       
 -  [**Hilda (3H) (Winter)**](https://i.imgur.com/5PNZkCm.jpg) - Tollomer
 
@@ -5762,6 +5764,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/bBSPJE5.jpg) - Caelholdt
 
       -  [**18**](https://i.imgur.com/UiAoPmW.jpg) - Geomint
+
+      -  [**19**](https://imgur.com/a/Ug2j98d) - y_th0ugh
 
 -  [**Hilda (3H) + Marianne (Summer)**](https://i.imgur.com/prQYOJC.jpg) - dahliamoonflowers
 
