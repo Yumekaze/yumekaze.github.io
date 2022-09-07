@@ -3329,6 +3329,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/hTovzY7.jpg) - sitta_canadensis
 
+      -  [**18**](https://cdn.discordapp.com/attachments/702009335542448128/1017001887620415518/Screenshot_20220907-192148_Fire_Emblem_Heroes.jpg) - Ryzer28
+
 -  [**Dimitri (Legendary)**](https://i.imgur.com/Lxmx8gV.jpg) - InfiniteLoop0
 
       -  [**2**](https://i.imgur.com/9lKDUiy.jpg) - Camping_Noob
@@ -12106,7 +12108,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/NxPQgj3.jpg) - Feral_Socks
 
-      -  [**12**](https://cdn.discordapp.com/attachments/753796194832220171/875908129005654066/image0.png) - scarletflowers
+      -  [**12**](https://cdn.discordapp.com/attachments/702009335542448128/1016990984430690334/IMG_4018.png) - scarletflowers
 
       -  [**13**](https://cdn.discordapp.com/attachments/294552858756382731/612043715774644235/Screenshot_20190816-155945_Fire_Emblem_Heroes.jpg) - TomatoFlakes
 
@@ -14267,6 +14269,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/wEPDz0g.jpg) - ckAr0n
 
 -  [**Tana (Young)**](https://i.imgur.com/Qgd6QXC.jpg) - AbyssiHu
+
+-  [**Tana + Peony (Flame)**](https://cdn.discordapp.com/attachments/702009335542448128/1016998993257054208/com.nintendo.zaba_Screenshot_2022.09.07_04.10.21.png) - Random546
 
 -  [**Tanith**](https://i.imgur.com/CyGEqMl.png) - MajorasKatana
 
