@@ -9718,7 +9718,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/F1wc0vl.jpg) - CodeDonutz
 
--  [**Muspell (Flame)**](https://i.imgur.com/PKTFPcn.jpg) - HeavenlySeraph
+-  [**Muspell (Flame)**](https://i.imgur.com/B5cqhZz.jpg) - HeavenlySeraph
       
 -  [**Mustafa**](https://i.imgur.com/NwDIFaD.jpg) - Tollomer
 
