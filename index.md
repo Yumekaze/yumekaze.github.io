@@ -4007,7 +4007,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/x4McTb9.jpg) - ArmyTurtles
 
-      -  [**7**](https://i.imgur.com/zrpCzvU.jpg) - MeraArasaki
+      -  [**7**](https://i.imgur.com/Z1ex2Tx.jpg) - MeraArasaki
 
 -  [**Eirika (Summer)**](https://i.imgur.com/mi74rPZ.jpg) - ckAr0n
 
