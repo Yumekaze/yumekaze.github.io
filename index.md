@@ -6581,6 +6581,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/gqB8DBC.png) - X-pert74
 
+      -  [**6**](https://i.imgur.com/0E1JC9w.png) - Pyrozendot
+
 -  [**Julia (Fallen)**](https://i.imgur.com/LPj3BfS.jpg) - jdotremy
 
       -  [**2**](https://i.imgur.com/TCq06fC.jpg) - The_Big_ID
