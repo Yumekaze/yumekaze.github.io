@@ -1443,6 +1443,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**73**](https://i.imgur.com/xPgdwlz.jpg) - A_Splash_of_Citrus
 
+      -  [**74**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352077157273630/RCaeda.png) - Skybeat8
+
 -  [**Caeda (Bride)**](http://i.imgur.com/G5MvAro.jpg) - exxit5408
 
       -  [**2**](https://i.imgur.com/SCo5pdF.jpg) - jaesuk97
@@ -3574,6 +3576,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**21**](https://i.imgur.com/zZGaFrT.jpg) - useless_idiot_man
 
       -  [**22**](https://i.imgur.com/p7avAVp.jpg) - Thingerfly
+
+      -  [**23**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352177325650000/Echidna.png) - Skybeat8
 
 -  [**Edelgard**](https://i.imgur.com/0khhA0W.jpg) - iamdarthyoshi
 
@@ -7338,6 +7342,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/7MTI2WP.jpg) - EmblianScum
 
       -  [**7**](https://i.imgur.com/L2xbE6U.jpg) - Jagoslaw
+
+      -  [**8**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352421081817188/DLachesis.png) - Skybeat8
 
 -  [**Laegjarn**](https://i.imgur.com/hOKktlq.png) - SentoriGunnah7046
 
@@ -14201,6 +14207,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**44**](https://i.imgur.com/aE7Cau3.jpg) - aqexpredator
 
       -  [**45**](https://i.imgur.com/P1hAidN.jpg) -  Slurpuffilicious
+
+      -  [**46**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352264307118220/RTailtiu.png) - Skybeat8
 
 -  [**Takumi**](http://i.imgur.com/XoX7I6h.png) - exxit5408	
 
