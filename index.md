@@ -1778,6 +1778,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/bhWXweJ.jpeg) - JdiJwa
 
       -  [**4**](https://i.imgur.com/ZxgKB7d.png) - NohrianScumbag
+
+-  [**Cath (Thief)**](https://i.imgur.com/rlPYkrK.png) - Kydiss
       
 -  [**Catherine**](https://i.imgur.com/1D3CPNk.jpg) - Climber_Fuuka
 
