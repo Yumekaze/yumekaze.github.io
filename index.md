@@ -897,6 +897,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Bartre (Spring)**](https://i.imgur.com/qnw3p9z.jpg) - TiltControls
 
+      -  [**2**](https://cdn.discordapp.com/attachments/931779685220753478/1021953034529546281/Screenshot_20220920-211554_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
+
 -  [**Basilio**](https://i.redd.it/9tts7m2g39481.jpg) - OwlMatik
 
 -  [**Benny**](https://i.imgur.com/vlBUfMy.png) - leoedeljo
