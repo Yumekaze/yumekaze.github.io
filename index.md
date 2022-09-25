@@ -6967,6 +6967,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/JoYo5dC.jpg) - CrystalAether
 
+      -  [**5**](https://i.imgur.com/6Ci02V3.png) - VeemotheeThe2nd
+
 -  [**Kempf**](https://cdn.discordapp.com/attachments/431207047715880961/680805153095680118/image0.png) - darkdogdemon
 
       -  [**2**](https://iili.io/BCXYF4.jpg) - Supergupo
@@ -9785,6 +9787,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Morgan (M) (Fallen)**](https://i.imgur.com/Ox65idV.jpg) - IchKannDasN1cht
 
 -  [**Muarim (Fallen)**](https://media.discordapp.net/attachments/222795246856044554/993767669469818890/Screenshot_20220705-083717_Fire_Emblem_Heroes.jpg) - howlinghenbane
+
+      -  [**2**](https://i.imgur.com/74asmBl.png) - VeemotheeThe2nd
 
 -  [**Muspell**](https://i.imgur.com/9m8fn98.jpg) - HeavenlySeraph
 
@@ -15316,6 +15320,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/iPxOlbF.jpg) - Psistriker94
 
+      -  [**8**](https://i.imgur.com/Ns13QQ1.png) - VeemotheeThe2nd
+
 -  [**Ylgr**](https://i.imgur.com/XNNGAY0.png) - kaoru-matsubara
 
       -  [**2**](https://i.imgur.com/Ni6DNQM.png) - Aaronwebber9
@@ -15357,6 +15363,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/H04GZRl.png) - A_Splash_of_Citrus
 
       -  [**3**](https://i.imgur.com/v3n5fvh.png) - souicune
+
+      -  [**4**](https://i.imgur.com/cpn2hUH.png) - VeemotheeThe2nd
 
 -  [**Zeke**](https://i.ibb.co/HNgnYPR/Zeke.jpg) - NohrianScumbag
 
