@@ -811,6 +811,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/J0d6iMs.jpg) - TemporalAlchemy
 
+      -  [**6**](https://i.imgur.com/OYs2WO7.jpg) - Zyrox9184
+
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/7cWNbsq.jpg) - Bored5437
@@ -1208,6 +1210,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/BnWWVEn.jpg) - Stalkos
 
       -  [**10**](https://i.imgur.com/2lWB0Ka.jpg) - Xenavire
+
+      -  [**11**](https://imgur.com/gallery/O19dquD#HAJbsVi) - Zyrox9184
       
 -  [**Bramimond**](https://i.imgur.com/BiaF9WQ.jpg) - SuitandTyrogue1
 
@@ -1739,6 +1743,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**11**](https://i.imgur.com/YwIvmDc.png) - Latibello
 
+      -  [**12**](https://i.imgur.com/YXsm648.jpg) - Blizzard_PR
+
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
       -  [**2**](https://i.imgur.com/pfz2twu.jpg) - Shuyomi
@@ -1970,6 +1976,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/2sbxtGR.jpg) - Dominicelel
 
       -  [**30**](https://cdn.discordapp.com/attachments/768469796118331412/1017118354248585288/Screenshot_20220907-200414_Fire_Emblem_Heroes.jpg) - ZipperQR
+
+      -  [**31**](https://i.imgur.com/vfmSFJ5.jpg) - Zyrox9184
 
 -  [**Cecilia (Winter)**](https://imgur.com/gallery/XdCN3n7) - MrFrostflare
 
@@ -2282,6 +2290,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**71**](https://i.imgur.com/PfeuHgm.jpg) - Kaiayos
 
       -  [**72**](https://i.imgur.com/hDAUfeD.jpg) - useless_idiot_man
+
+      -  [**73**](https://i.imgur.com/HuohpAL.jpg) - Zyrox9184
 
 -  [**Chrom**](http://i.imgur.com/onLvVdh.png) - exxit5408
 
@@ -7197,6 +7207,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Kyza (New Year's)**](https://i.imgur.com/p8JVG1R.jpg) - SuddenJami
 
+      -  [**2**](https://i.imgur.com/8o6Qehj.jpg) - Pummel_chen
+
 -  [**L'Arachel**](https://cdn.discordapp.com/attachments/285145120037404673/408742393014386689/image.png) - Eirikafeh
 
       -  [**2**](https://cdn.discordapp.com/attachments/481934396660776962/541079592308441090/image2.png) - Galastan
@@ -9359,6 +9371,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/GO70ZAT.jpg) - useless_idiot_man
 
 -  [**Mercedes (Summer)**](https://i.imgur.com/WmNDrVZ.jpg) - dahliamoonflowers
+
+      -  [**2**](https://i.imgur.com/ZTzayig.jpg) - GameNut1811
       
 -  [**Merlinus**](https://i.imgur.com/zkcyEhm.jpg) - Pf9877
 
@@ -15327,6 +15341,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Xander (Summer)**](https://i.imgur.com/KyyEqV0.png) - chiropterakee
 
 -  [**Xander (Festival in Hoshido)**](https://imgur.com/gallery/s1fVvcS) - evlawnmower
+
+-  [**Xander (Legendary)**](https://i.imgur.com/Odp0Itn.jpg) - Blizzard_PR
 
 -  [**Xane (Halloween)**](https://i.imgur.com/wMuSWK1.jpg) - Gotta-Snatch-Em-All
 
