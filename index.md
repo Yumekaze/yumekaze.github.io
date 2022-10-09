@@ -6455,6 +6455,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://cdn.discordapp.com/attachments/274081189894291457/1009751692872515654/Screenshot_2022-08-18-21-11-36-49_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
+      -  [**18**](https://i.imgur.com/SXXoUPF.jpg) - Ausitan
+
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
       -  [**2**](https://i.imgur.com/s4UOR4c.png) - Berk4823
@@ -11159,6 +11161,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/h0QfhTQ.png) - imgurian217
 
       -  [**4**](https://cdn.discordapp.com/attachments/751697423331622922/931665447328317470/Screenshot_2022-01-15-08-15-32-673_com.nintendo.zaba.jpg) - Mitsun
+
+      -  [**5**](https://i.imgur.com/FNrZv6y.jpg) - Kaabiikaze
 
 -  [**Olivia (Ylissean Travelers)**](http://i.imgur.com/DPb6m1o.jpg) - dirtysmall
 
