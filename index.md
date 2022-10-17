@@ -13114,7 +13114,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
 -  [**Seliph (Legendary)**](https://i.imgur.com/Irx4V1l.jpg) - roflwaffler
 
--  [**Seliph (Brave)**](https://cdn.discordapp.com/attachments/573783024072654858/1011461344911953940/IMG_2573.png) - KujoQtaro
+-  [**Seliph (Brave)**](https://cdn.discordapp.com/attachments/573783024072654858/1031715507134550056/IMG_2653.jpeg) - KujoQtaro
 
       -  [**2**](https://i.imgur.com/omm39P1.jpg) - roflwaffler
 
