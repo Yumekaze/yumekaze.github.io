@@ -121,6 +121,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**5**](https://i.imgur.com/4m0Fn0L.jpg) - XinchoStellar
 
+     -  [**6**](https://i.imgur.com/GhgWey1.jpg) - Aesidyne
+
 -  [**Alm + Celica (Valentine's)**](https://i.imgur.com/5Zn9ASK.jpg) - Belligero_
 
      -  [**2**](https://i.imgur.com/UijRJBr.png) - Taichikins
@@ -4115,6 +4117,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/M1omdzw.png) - BenNegify
 
+      -  [**9**](https://i.imgur.com/DgCV7oA.jpg) - Aesidyne
+
 -  [**Eirika (Summer)**](https://i.imgur.com/mi74rPZ.jpg) - ckAr0n
 
 -  [**Eitri**](https://i.redd.it/aw0kyyi55r281.png) - Paiguy7
@@ -7888,7 +7892,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/krnQUjQ.jpeg) - Neiooking
 
-      -  [**10**](https://i.imgur.com/fcysL9L.jpg) - Aesidyne
+      -  [**10**](https://i.imgur.com/2O5WDS8.jpg) - Aesidyne
 
 -  [**Lewyn (Scion)**](https://i.imgur.com/QKMJdob.jpg) - goldtreebark
 
@@ -8888,6 +8892,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/B1dXJN3.png) - ShadowMLuigi
 
+      -  [**11**](https://i.imgur.com/uYv0QY6.jpg) - Aesidyne
+
 -  [**Lysithea + Lute (Winter)**](https://i.imgur.com/2m6qA4A.jpg) - BlueToon_Link
 
       -  [**2**](https://i.imgur.com/E5pOswS.png) - Glacia471
@@ -9231,6 +9237,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://imgur.com/gallery/eHdbj8T) - Kn0XIS
 
       -  [**9**](https://i.imgur.com/709UPtO.jpg) - mars_lowell_72
+
+      -  [**10**](https://i.imgur.com/GintcCk.jpg) - Aesidyne
 
 -  [**Marth (Masked)**](https://i.imgur.com/01gZAMs.jpg) - Daze006
 
