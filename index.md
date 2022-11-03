@@ -12952,6 +12952,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/c2dySgC.jpg) - CrystalAether
 
+      -  [**3**](https://i.imgur.com/Y5fkVW6.jpg) - symmphonic
+
 -  [**Seiros**](https://i.imgur.com/Xk0PdZ4.jpg) - NohrianScumbag
 
       -  [**2**](https://i.imgur.com/qd2XlzR.png) - Nintentoast
