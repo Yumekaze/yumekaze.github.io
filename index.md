@@ -983,6 +983,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/tnScSrh.jpg) - RoseCelebi
 
+      -  [**3**](https://preview.redd.it/16h8zsanv8q91.jpg?width=431&auto=webp&s=ef0772ccb32bde8575f4a80ae008a0d3b57b6a90) - Phantom_Cavalier
+
 -  [**Bernadetta**](https://i.imgur.com/VKriCLF.jpg) - Killing-Poison
 
       -  [**2**](https://i.imgur.com/bEfrRlJ.png) - Dawns_Horizon
@@ -3432,6 +3434,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/hTovzY7.jpg) - sitta_canadensis
 
       -  [**18**](https://cdn.discordapp.com/attachments/702009335542448128/1017001887620415518/Screenshot_20220907-192148_Fire_Emblem_Heroes.jpg) - Ryzer28
+
+      -  [**19**](https://i.imgur.com/ExnSEfJ.jpg) - trionfi
 
 -  [**Dimitri (Legendary)**](https://i.imgur.com/Lxmx8gV.jpg) - InfiniteLoop0
 
@@ -6792,6 +6796,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**20**](https://i.imgur.com/zA7aYcL.jpg) - Jagoslaw
 
       -  [**21**](https://i.imgur.com/v6vv0PZ.jpg) - Moosewheat
+
+      -  [**22**](https://i.imgur.com/JsYeERI.jpeg) - JdiJwa
 
 -  [**Juno (Bridal)**](https://i.imgur.com/E7UKpjQ.png) - Galevayu05
 
@@ -11552,6 +11558,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/s1Wj6kt.jpeg) - SorcererHex
 
+-  [**Phila**](https://i.imgur.com/4QjMY8n.jpeg) - JdiJwa
+
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/C91P5IU.jpg) - MetaTriforce
@@ -14605,6 +14613,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/ATlMKVb.png) - shipperondeck
 
       -  [**10**](https://i.imgur.com/wHZVLHX.jpg) - ckAr0n
+
+      -  [**11**](https://i.imgur.com/mhxVwSR.jpeg) - JdiJwa
 
 -  [**Tana (Summer)**](https://i.imgur.com/yyYBOTp.jpg) - october_5
 
