@@ -12200,6 +12200,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/LwaEBvT.jpg) - Snowiss
 
+      -  [**4**](https://i.imgur.com/qjMSEin.jpg) - Flashgridcraft
+
 -  [**Riev**](https://i.imgur.com/n8jqsaI.jpg) - Metroplex7
 
 -  [**Rinea**](https://i.imgur.com/1pFoTe8.jpg) - Chuuni-chan
