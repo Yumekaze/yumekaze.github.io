@@ -8924,7 +8924,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/BluBstj.jpg) - MystyM
 
-      -  [**7**](https://i.imgur.com/kkGBLRl.jpg) - Jagoslaw
+      -  [**7**](https://i.imgur.com/c1aqFZx.png) - Jagoslaw
 
       -  [**8**](https://i.imgur.com/FlphxrB.jpg) - Trinomew
 
@@ -11121,6 +11121,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://cdn.discordapp.com/attachments/1018684740431270031/1018693882990579853/HNowi.png) - Skybeat8
       
       -  [**8**](https://lh3.googleusercontent.com/pw/ACtC-3fgCQiwKqVJjyjVDvokcvCLs72oy2Q3_0al3NedYkYXpR0dnX79mwPG-GqY-9DOAIWSiXNG_OUr6t82nBWiUpdkQlETpHn_4425pv6PH3ObZNzPDOnguhWOOZN3qrP_jOG6skszcsZ73qPz5n--r6oj=w530-h943-no?authuser=0) - Ense20
+
+-  [**Nyna**](https://cdn.discordapp.com/attachments/702009335542448128/1043617259345694902/unknown.png) - albsbabe
 
 -  [**Oboro**](https://cdn.discordapp.com/attachments/294552858756382731/612043845089361920/Screenshot_20190816-155121_Fire_Emblem_Heroes.jpg) - TomatoFlakes 
 
