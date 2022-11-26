@@ -9788,6 +9788,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://cdn.discordapp.com/attachments/757814526782603300/981997043004354700/IMG_3897.png) - Fatalis_Mien
 
+-  [**Micaiah (Summer)**](https://i.imgur.com/8ofRwKA.png) - Pyrozendot
+
 -  [**Michalis**](https://cdn.discordapp.com/attachments/431207047715880961/539584579154083850/Fire_Emblem_Heroes_2019-01-28-18-16-16.png) - ptolemy77
 
       -  [**2**](https://i.imgur.com/xwP2B0r.png) - Inai10
