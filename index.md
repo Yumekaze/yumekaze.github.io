@@ -4645,7 +4645,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/inMZc8Q.jpg) - CrystalAether
 
--  [**Ethlyn (Soiree)**](https://i.imgur.com/rKSmjiI.jpg) - Jagoslaw
+-  [**Ethlyn (Soiree)**](https://i.imgur.com/H9GPf7X.jpg) - Jagoslaw
 
       -  [**2**](https://i.imgur.com/3tWDVIv.png) - yheeyhaw
 
@@ -5174,6 +5174,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/Ri8y0nL.jpg) - YoshaTime
 
       -  [**5**](https://i.imgur.com/ZPuKkNJ.jpg) - coolspark20
+
+      -  [**6**](https://i.imgur.com/8vZF2sd.jpg) - Jagoslaw
       
 -  [**Flame Emperor**](https://i.imgur.com/wFJrC1Z.jpg) - KujoQtaro
 
@@ -8924,7 +8926,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/BluBstj.jpg) - MystyM
 
-      -  [**7**](https://i.imgur.com/c1aqFZx.png) - Jagoslaw
+      -  [**7**](https://i.imgur.com/y7CL3z6.jpg) - Jagoslaw
 
       -  [**8**](https://i.imgur.com/FlphxrB.jpg) - Trinomew
 
