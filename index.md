@@ -1023,6 +1023,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Bertram (Fallen)**](https://i.imgur.com/Gf9UP83.png) - Blizzardthree
 
+      -  [**2**](https://i.imgur.com/1sBvAro.jpg) - TiltControls
+
 -  [**Beruka**](http://i.imgur.com/ryX5K8O.jpg) - Lattikhya
 
       -  [**2**](https://i.imgur.com/DsHISOQ.png) - dejvy
@@ -2192,6 +2194,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**7**](https://i.imgur.com/wwT2U3v.jpg) - Kn0XIS
 
      -  [**8**](https://i.imgur.com/QdpusAo.jpg) - Kaiayos
+
+-  [**Cervantes**](https://i.imgur.com/ZpJLZfW.jpg) - TiltControls
 
 -  [**Chad**](https://i.imgur.com/0iNbF7Z.jpg) - JdiJwa
 
@@ -3509,6 +3513,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/VZLrzXD.png) - G-N-S
 
+      -  [**5**](https://i.imgur.com/AjkJtly.png) - Blurgawurgakree
+
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
       -  [**2**](https://i.imgur.com/yKueEsj.jpg) - HangingSky
@@ -4111,6 +4117,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/bKbXH27.png) - A_Splash_of_Citrus
 
+      -  [**6**](https://i.imgur.com/CY1vaYn.png) - Blurgawurgakree
+
 -  [**Eirika (Winter)**](https://i.imgur.com/wUMsGdZ.jpg) - dirtysmall
 
       -  [**2**](https://i.imgur.com/16biJjH.jpg) - ClickHereToDie
@@ -4148,6 +4156,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/M1omdzw.png) - BenNegify
 
       -  [**9**](https://i.imgur.com/DgCV7oA.jpg) - Aesidyne
+
+      -  [**10**](https://i.imgur.com/1ZCJRlW.png) - Blurgawurgakree
 
 -  [**Eirika (Summer)**](https://i.imgur.com/mi74rPZ.jpg) - ckAr0n
 
@@ -4405,6 +4415,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**65**](https://media.discordapp.net/attachments/870734445886464070/1026203504018198678/Screenshot_20221002-143859.png) - peababyy
 
+      -  [**66**](https://i.imgur.com/trWYrOt.jpg) - TiltControls
+
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
       -  [**2**](https://i.imgur.com/kfVkpoK.jpg) - FaZeR_PT
@@ -4533,7 +4545,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ephraim + Lyon**](https://i.imgur.com/Dag3zsb.jpg) - Belligero_
 
-      -  [**2**](https://i.imgur.com/zgunQhe.jpg) - TiltControls
+      -  [**2**](https://i.imgur.com/6uz2sym.jpg) - TiltControls
       
       -  [**3**](https://i.imgur.com/GpFkvep.png) - Taichikins
       
@@ -7139,7 +7151,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**19**](https://i.imgur.com/iUOpHoB.jpg) - 1breadstick
 
-      -  [**20**](https://i.imgur.com/KbroPqU.png) - Katerpu
+      -  [**20**](https://cdn.discordapp.com/attachments/967245762813632633/1052339906929770546/Screenshot_20221213-134231.png) - Katerpu
 
       -  [**21**](https://i.imgur.com/IGhjsDt.png) - Skybeat8
 
@@ -9126,7 +9138,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/K6FiGBw.jpg) - Sasiyaki
 
-      -  [**8**](https://i.imgur.com/sDLdZzb.png) - Blurgawurgakree
+      -  [**8**](https://i.imgur.com/oXA08Vn.png) - Blurgawurgakree
 
       -  [**9**](https://i.imgur.com/23VxHnT.png) - 101perry
 
@@ -10524,6 +10536,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/0BkFT2K.jpg) - Dexiriev
 
+-  [**Nils (Halloween)**](https://i.imgur.com/2jGCIwf.jpeg) - Dexiriev
+
 -  [**Nina**](https://i.imgur.com/NE6ZxAk.jpg) - KorabanVII
 
       -  [**2**](https://i.imgur.com/1uRqUYJ.png) - WhalesOnStrike
@@ -11645,6 +11659,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/s1Wj6kt.jpeg) - SorcererHex
 
 -  [**Phila**](https://i.imgur.com/4QjMY8n.jpeg) - JdiJwa
+
+      -  [**2**](https://i.imgur.com/6uiW4UB.jpg) - Sharena_Emblem
 
 -  [**Phina**](https://i.imgur.com/ShtHGY6.jpg) - Rabbytt
 
