@@ -255,6 +255,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/aDTJk8d.jpg) - PegaponyPrince
 
+-  [**Annette (Winter)**](https://cdn.discordapp.com/attachments/927040592880484402/1053240984416305172/Miso_PlusTenWinterAnnette.png) - MisoSoup247
+
 -  [**Arden**](https://i.redd.it/iqxxmwh326y21.png) - PhiphyL
 
       -  [**2**](https://i.imgur.com/oaCxGw4.png) - Fehinaction
@@ -1172,6 +1174,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**41**](https://i.imgur.com/FRi2FeI.jpg) - Link7609
 
       -  [**42**](https://i.imgur.com/YytrqBL.jpg) - Awkward-Ceremony
+
+-  [**Black Knight (Winter)**](https://cdn.discordapp.com/attachments/927040592880484402/1053240979907428403/Miso_PlusTenWinterBlackKnight.png) - MisoSoup247
 
 -  [**Boey**](http://i.imgur.com/Mwx23oB.png) - exxit5408
 
