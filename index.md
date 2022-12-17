@@ -10558,6 +10558,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Nils (Halloween)**](https://i.imgur.com/2jGCIwf.jpeg) - Dexiriev
 
+      -  [**2**](https://i.imgur.com/WAcjCER.png) - Mogekov
+
 -  [**Nina**](https://i.imgur.com/NE6ZxAk.jpg) - KorabanVII
 
       -  [**2**](https://i.imgur.com/1uRqUYJ.png) - WhalesOnStrike
