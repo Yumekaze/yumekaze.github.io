@@ -4473,6 +4473,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/OApUfeX.jpg) - Geomint
 
+-  [**Elm (New Year's)**](https://cdn.discordapp.com/attachments/702009335542448128/1059635156912189570/Screenshot_20230102-194859.png) - ShiningSolarSword
+
 -  [**Emmeryn**](https://i.imgur.com/yl30iaR.png) - PagePyralis
 
       -  [**2**](https://i.imgur.com/Clp2eaY.jpg) - RoseCelebi
@@ -7595,7 +7597,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/ZHjD0dO.jpg) - MystyM
 
-      -  [**27**](https://i.imgur.com/IisNoYx.jpg) - Jagoslaw
+      -  [**27**](https://i.imgur.com/2ugg91u.jpeg) - Jagoslaw
       
 -  [**Lachesis (Soiree)**](https://i.imgur.com/1XrTGfc.jpg) - Rabbytt
 
@@ -8967,6 +8969,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/dsQynAn.jpeg) - stephenthatfoste
 
       -  [**3**](https://i.imgur.com/hgKtuT7.png) - HystericalTrend
+
+      -  [**4**](https://i.imgur.com/ewH8Tu5.jpeg) - LyreConnoisseur
 
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
 
