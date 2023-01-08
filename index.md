@@ -11610,7 +11610,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Pelleas**](https://i.imgur.com/U8mcDzq.png) - Illumina25
 
-      -  [**2**](https://i.imgur.com/pPfvuW3.jpg) - Slurpuffilicious
+      -  [**2**](https://i.imgur.com/vvuVdo6.jpg) - Slurpuffilicious
 
       -  [**3**](https://cdn.discordapp.com/attachments/931779685220753478/1018672567227265024/Screenshot_20220910-133608_Fire_Emblem_Heroes.jpg) - EMAIL_ME_PHOENIX_SFW
 
