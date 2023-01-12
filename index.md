@@ -505,6 +505,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://i.imgur.com/hvNnPV1.png) - Daisyleaf6
 
+      -  [**22**](https://i.imgur.com/jREaN8V.png) - Whirlwhind
+
 -  [**Askr**](https://i.imgur.com/ztqa06H.jpg) - Slurpuffilicious
 
       -  [**2**](https://i.imgur.com/s2Kvhzo.jpg) - StormAurora
@@ -4287,6 +4289,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/FfcjQ3K.jpg) - Antiquo
 
+      -  [**7**](https://i.imgur.com/chmnNpS.jpg) - zedabo
+
 -  [**Elise**](http://i.imgur.com/zUfO0AN.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/xA3odoP.jpg) - jaesuk97
@@ -5829,6 +5833,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**25**](https://i.imgur.com/qLKS2g7.jpg) - Tery_
 
+      -  [**26**](https://i.imgur.com/Z5UelUL.png) - Whirlwhind
+
 -  [**Hapi**](https://i.imgur.com/PfWeX2c.png) - ShadowMLuigi
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
@@ -6610,6 +6616,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/SXXoUPF.jpg) - Ausitan
 
       -  [**19**](https://i.imgur.com/3paVI61.jpg) - Starspeedrunner
+
+      -  [**20**](https://i.imgur.com/Z1ZmogO.png) - Whirlwhind
 
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
@@ -9099,6 +9107,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/QNqQ4VJ.jpg) - kieku1
 
       -  [**3**](https://preview.redd.it/ph7t2me5a6081.jpg?width=345&auto=webp&s=733ee31b2fc9000241bc66db46c80942f365b679) - Sodaim
+
+      -  [**4**](https://i.imgur.com/O4Ms6xU.png) - Mr-Lostcause
       
 -  [**Mareeta**](https://i.imgur.com/kPzF2JZ.png) - Lainon
 
@@ -10012,6 +10022,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://i.imgur.com/NiUd4nW.jpg) - Moosewheat
 
+-  [**Mordecai (Flame)**](https://i.imgur.com/XB53fMN.png) - Whirlwhind
+
 -  [**Morgan (F)**](https://i.imgur.com/9NYwe1p.png) - Jazzswipe
 
       -  [**2**](https://i.imgur.com/fdgxIew.png) - dualbloodlines
@@ -10129,6 +10141,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**46**](https://i.imgur.com/pfOIi7d.jpg) - A_Splash_of_Citrus
 
       -  [**47**](https://i.ibb.co/T0ShpLC/Screenshot-20221101-133559-Fire-Emblem-Heroes.jpg) - chiheerio
+
+      -  [**48**](https://i.imgur.com/kpwD6KW.png) - Whirlwhind
 
 -  [**Morgan (F) (Fallen)**](https://i.imgur.com/l79vURR.jpg) - jdotremy
 
@@ -10396,6 +10410,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/rRZ5via.jpg) - Tery_
 
+      -  [**11**](https://i.imgur.com/lJhaB73.png) - Whirlwhind
+
 -  [**Nanna (Legendary)**](https://i.imgur.com/PpZt7of.png) - Kyrroti
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
@@ -10614,6 +10630,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/LjYZygI.jpg) - samsationalization
 
+      -  [**11**](https://preview.redd.it/dq9ll634yt9a1.png?width=320&crop=smart&auto=webp&v=enabled&s=df28903c4c2b8f9ff70008d539ceeff552a73486) - Calamariniara
+
 -  [**Ninian (Bridal)**](https://i.imgur.com/TCUYKeo.png) - penguinzrock
 
       -  [**2**](https://i.imgur.com/Jxg79Ys.jpg) - dirtysmall
@@ -10625,6 +10643,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/55ALjDq.jpg) - ShinkuDragon
 
 -  [**Ninian (Fallen)**](https://i.imgur.com/jLFsrbc.jpg) - verasvanir
+
+      -  [**2**](https://preview.redd.it/4wac9ah2yt9a1.png?width=320&crop=smart&auto=webp&v=enabled&s=2035bdadf7a2e9488664241bea85652dcebc2e68) - Calamarinara
+
+-  [**Ninian (Legendary)**](https://preview.redd.it/n9art621yt9a1.png?width=320&crop=smart&auto=webp&v=enabled&s=979b6339e02d8097219e5d7e228aec14911c6f78) - Calamarinara
 
 -  [**Nino**](https://i.imgur.com/sGitH50.png) - WeeboSupremo
 
@@ -11452,7 +11474,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/M6fg6te.png) - SonicSpeed0919
 
-      -  [**7**](https://i.imgur.com/HkmpGH2.jpg) - zedabo
+      -  [**7**](https://i.imgur.com/F8QuwSC.jpg) - zedabo
 
       -  [**8**](https://i.imgur.com/sSLhHxm.png) - NohrianScumbag
 
@@ -12514,6 +12536,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**61**](https://i.imgur.com/j31CVZB.jpg) - Tery_
 
+      -  [**62**](https://i.imgur.com/BbcGV1Q.png) - Whirlwhind
+
 -  [**Robin (Winter)**](https://i.imgur.com/SbD5i04.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/CRkvsIb.jpg) - jaesuk97
@@ -13305,6 +13329,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/v7fDZgf.jpg) - sitta_canadensis
 
       -  [**38**](https://i.imgur.com/vVPJll1.jpg) - Tery_
+
+      -  [**39**](https://i.imgur.com/kP1XtpQ.png) - Mr-Lostcause
       
 -  [**Seliph (Legendary)**](https://i.imgur.com/Irx4V1l.jpg) - roflwaffler
 
@@ -15048,6 +15074,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**19**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693698793482/Screenshot_2022-08-18-21-11-57-51_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
+      -  [**20**](https://i.imgur.com/m4LFmzT.png) - Mr-Lostcause
+
 -  [**Thrasir**](https://i.imgur.com/mCRNkDz.png) - fjorm_book_ii
 
       -  [**2**](https://i.imgur.com/UTJFwuR.jpg) - samsationalization
@@ -15807,6 +15835,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/iPxOlbF.jpg) - Psistriker94
 
       -  [**8**](https://i.imgur.com/Ns13QQ1.png) - VeemotheeThe2nd
+
+      -  [**9**](https://i.imgur.com/OX2Hc0Z.png) - Whirlwhind
 
 -  [**Ylgr**](https://i.imgur.com/XNNGAY0.png) - kaoru-matsubara
 
