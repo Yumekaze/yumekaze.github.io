@@ -15890,6 +15890,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/HwEh3dI.jpg) - A_Splash_of_Citrus
 
+      -  [**3**](https://i.imgur.com/dNCh28X.jpeg) - JdiJwa
+
 -  [**Yuri**](https://i.imgur.com/tgeIgbw.jpg) - Red_Demons_Dragon
 
       -  [**2**](https://i.imgur.com/H04GZRl.png) - A_Splash_of_Citrus
