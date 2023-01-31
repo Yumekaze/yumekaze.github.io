@@ -857,6 +857,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/NvrMgyP.jpg) - Moosewheat
 
+      -  [**8**](https://media.discordapp.net/attachments/809593002707648563/1068169983877726328/IMG_7510.png?width=401&height=868) - Possible-Cancel9507
+
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/7cWNbsq.jpg) - Bored5437
@@ -5581,6 +5583,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/nSyYJiV.jpg) - Phaaze13
 
+      -  [**13**](https://media.discordapp.net/attachments/809593002707648563/1068169969310912622/IMG_7509.png?width=401&height=868) - Possible-Cancel9507
+
 -  [**Gray**](https://i.imgur.com/LFii0m7.png) - Sadistice
 
       -  [**2**](http://i.imgur.com/G0WwWyX.png) - exxit5408
@@ -8087,6 +8091,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/FeY8Cp5.png) - A_Splash_of_Citrus
 
       -  [**12**](https://i.imgur.com/z12vE0b.jpg) - Jagoslaw
+
+      -  [**13**](https://media.discordapp.net/attachments/809593002707648563/1068169998620688434/IMG_7511.png?width=401&height=868) - Possible-Cancel9507
 
 -  [**Libra**](https://imgur.com/pv0CGMm) - LarkNL
 
@@ -12760,7 +12766,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Roshea**](https://i.imgur.com/ZygjNOP.png) - Blizzardthree
 
-      -  [**2**](https://media.discordapp.net/attachments/809593002707648563/994727833777750016/IMG_6768.png?width=548&height=975) - Possible-Cancel9507
+      -  [**2**](https://media.discordapp.net/attachments/809593002707648563/1068170037438988359/IMG_7513.png?width=401&height=868) - Possible-Cancel9507
 
       -  [**3**](https://i.imgur.com/janWbvn.jpg) - reesesmilkshake577
 
@@ -14783,6 +14789,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**45**](https://i.imgur.com/P1hAidN.jpg) -  Slurpuffilicious
 
       -  [**46**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352264307118220/RTailtiu.png) - Skybeat8
+
+      -  [**47**](https://media.discordapp.net/attachments/809593002707648563/1068170020426887248/IMG_7512.png?width=401&height=868) - Possible-Cancel9507
 
 -  [**Takumi**](http://i.imgur.com/XoX7I6h.png) - exxit5408	
 
