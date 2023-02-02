@@ -9152,6 +9152,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/u5EwG38.jpg) - A_Splash_of_Citrus
 
+      -  [**10**](https://cdn.discordapp.com/attachments/702009335542448128/1070568646247727146/Screenshot_20230202-155446.jpg) - Ryzer28
+
 -  [**Marcia**](https://i.imgur.com/pNbneR8.png) - Illumina25
 
       -  [**2**](https://i.imgur.com/QNqQ4VJ.jpg) - kieku1
