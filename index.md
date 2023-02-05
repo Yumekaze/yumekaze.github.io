@@ -231,6 +231,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/tCoym3D.png) - BenNegify
 
+      -  [**16**](https://i.imgur.com/IAeIIzZ.jpg) - applejuice10101
+
 -  [**Anna (New Year's)**](https://i.imgur.com/C2wtLKR.jpg) - UltimaKuma
 
       -  [**2**](https://i.imgur.com/THQ2qdO.jpg) - donnylwil
@@ -415,6 +417,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Arthur (Genealogy)**](https://i.imgur.com/OH9BliW.png) - Sealking13
 
+-  [**Artur (Winter)**](https://i.imgur.com/BHN5yqj.jpg) - duchessa13
+
 -  [**Arvis**](https://i.imgur.com/krxWTXR.png) - crunk_juice34
 
       -  [**2**](https://i.gyazo.com/0672d1e0adb40ee3f1f4b7e74a258b56.png) - ZomBurt
@@ -514,6 +518,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Askr**](https://i.imgur.com/ztqa06H.jpg) - Slurpuffilicious
 
       -  [**2**](https://i.imgur.com/s2Kvhzo.jpg) - StormAurora
+
+-  [**Askr + Embla (New Year's)**](https://i.imgur.com/chh0oOw.jpg) - Psistriker94
 
 -  [**Astram**](https://i.imgur.com/bqmapwS.jpg) - TiltControls
 
@@ -3163,6 +3169,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/yGnBwG4.png) - SonicSpeed0919
 
+-  [**Corrin (F Halloween)**](https://i.imgur.com/P9Jfw2c.png) - Abadchef
+
 -  [**Corrin (M)**](http://i.imgur.com/qq0VqlO.png) - exxit5408
 
       -  [**2**](https://media.discordapp.net/attachments/223219748438016003/404796436060962816/25593675_10156097492390962_2137895446_n.png?width=263&height=468) - Leidon94
@@ -4576,6 +4584,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/6XsK1wG.png) - PM_ME_EDGEWORTH_NUDE
 
       -  [**8**](https://i.imgur.com/ZEgMnIy.jpg) - MrStreeter
+
+      -  [**9**](https://i.imgur.com/qCJF19y.jpg) - Psistriker94
 
 -  [**Ephraim (Winter)**](https://i.imgur.com/B9EAeEZ.jpg) - Demestro
 
@@ -15645,6 +15655,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/7LJ7VPA.jpg) - Slurpuffilicious
 
 -  [**Ullr**](https://i.imgur.com/hdxHvwv.jpg) - JdiJwa
+
+      -  [**2**](https://cdn.discordapp.com/attachments/573783024072654858/1071698243701981204/IMG_2840.jpg) - KujoQtaro
 
 -  [**Ursula**](https://i.imgur.com/e8PznbY.png) - MasatoManatee
 
