@@ -6347,7 +6347,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://preview.redd.it/egd324tolfz91.jpg?width=750&format=pjpg&auto=webp&s=2ce9a1355c57ff8f207d90926f7b317c1466d5060) - Swiftwhiskers
 
-      -  [**7**](https://i.imgur.com/ECvTzKP.png) - nostradonist
+      -  [**7**](https://i.imgur.com/ECvTzKP.png) - nostradontist
 
 -  [**Igrene**](https://i.imgur.com/aP7ToJF.jpg) - messFEH
 
@@ -14380,7 +14380,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/YitOhIi.jpg) - Kaabiikaze
 
-      -  [**7**](https://i.imgur.com/h3dQFCU.png) - nostradonist
+      -  [**7**](https://i.imgur.com/h3dQFCU.png) - nostradontist
 
 -  [**Soren**](https://i.imgur.com/zw2zk6P.jpg) - star-light-trip
 
@@ -16038,7 +16038,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://i.imgur.com/VsLOawm.jpg) - EmblianScum
 
-      -  [**14**](https://i.imgur.com/MYCocAf.png) - nostradonist
+      -  [**14**](https://i.imgur.com/MYCocAf.png) - nostradontist
 
 -  [**Yune**](https://i.imgur.com/tWf1A1Y.jpg) - YorozuyaTrio
 
