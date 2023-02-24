@@ -2271,6 +2271,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**6**](https://i.imgur.com/U55L4v6.jpg) - souicune
 
+-  [**Charlotte**](https://i.imgur.com/8MNA8Ja.png) - Danagi95
+
 -  [**Charlotte (Bride)**](http://i.imgur.com/zEOrv6C.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/lxMsCIB.png) - QuiteChilly
@@ -4185,6 +4187,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**85**](https://i.imgur.com/s9icxD9.jpg) - Moosewheat
 
+      -  [**86**](https://i.imgur.com/rxc0AB9.jpg) - aunnnnnnnnnn
+
+
 -  [**Eirika (Sacred Memories)**](https://i.imgur.com/B8h5T63.jpg) - iamdarthyoshi
 
       -  [**2**](https://i.imgur.com/cBoHY8I.jpg) - PkPhreak_official
@@ -4374,6 +4379,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](http://i.imgur.com/ktFyKxy.png) - exxit5408
 
       -  [**3**](https://i.imgur.com/adU5d5O.png) - jaesuk97
+
+-  [**Elise + Sakura (Valentine's)**](https://i.imgur.com/IldJ1Dz.png) - phoenixfudge
 
 -  [**Eliwood**](https://i.imgur.com/qxN3hKX.jpg) - Faithhandler 
 
@@ -6876,6 +6883,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://cdn.discordapp.com/attachments/713790993849385002/1062495086484652123/Screenshot_20230110_162237.jpg) - ukantor
 
       -  [**5**](https://i.imgur.com/XFnhbV9.png) - ScythXGaming
+
+      -  [**6**](https://i.imgur.com/VeqokuB.jpg) - maxblade33
       
 -  [**Jill**](https://i.imgur.com/QP88SvU.png) - AlbinosRideDinos
 
