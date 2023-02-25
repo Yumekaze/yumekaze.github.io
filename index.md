@@ -401,6 +401,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**52**](https://i.imgur.com/fKYYMP7.png) - CharaFanGirl
 
+      -  [**53**](https://i.imgur.com/q5QD41r.png) - Patchoru
+
 -  [**Arete**](https://i.imgur.com/BPoNxzk.png) - CzarKhasm
 
       -  [**2**](https://i.imgur.com/Paw694V.jpg) - KnifeToMeetYou_
@@ -458,6 +460,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**15**](https://i.imgur.com/iE9ypKW.png) - Candy_Warlock
 
       -  [**16**](https://i.imgur.com/J4rgIux.jpg) - sitta_canadensis
+
+      -  [**17**](https://i.imgur.com/Nr6hpeq.png) - Patchoru
 
 -  [**Asbel**](https://i.imgur.com/dDv1f5l.jpg) - ReclusiveBoatGuy
 
@@ -962,6 +966,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**23**](https://i.imgur.com/oIvdPbn.png) - Arklaine
 
       -  [**24**](https://i.imgur.com/9i0GP76.jpg) - MystyM
+      
+      -  [**25**](https://i.imgur.com/gWcdXhO.png) - Patchoru
       
 -  [**Bartre (Spring)**](https://i.imgur.com/qnw3p9z.jpg) - TiltControls
 
@@ -2254,6 +2260,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**7**](https://i.imgur.com/wwT2U3v.jpg) - Kn0XIS
 
      -  [**8**](https://i.imgur.com/QdpusAo.jpg) - Kaiayos
+
+     -  [**9**](https://i.imgur.com/xulMrTv.png) - Patchoru
 
 -  [**Cervantes**](https://i.imgur.com/ZpJLZfW.jpg) - TiltControls
 
@@ -5868,7 +5876,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**26**](https://i.imgur.com/vVsbu0Z.jpg) - Dark-C
       
-      -  [**27**](https://i.imgur.com/m6NwLsq.jpg) - Patchoru
+      -  [**27**](https://i.imgur.com/dQ7qL47.png) - Patchoru
       
       -  [**28**](https://i.imgur.com/WAKF8se.png) - kit_you_out
       
@@ -5931,6 +5939,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**25**](https://i.imgur.com/qLKS2g7.jpg) - Tery_
 
       -  [**26**](https://i.imgur.com/Z5UelUL.png) - Whirlwhind
+
+      -  [**27**](https://i.imgur.com/DZjUOYZ.png) - Patchoru
 
 -  [**Hapi**](https://i.imgur.com/PfWeX2c.png) - ShadowMLuigi
 
@@ -6673,6 +6683,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/4LQpj25.png) - NLiLox
 
       -  [**11**](https://i.imgur.com/nKhpPQP.png) - NightmareShane
+
+      -  [**12**](https://i.imgur.com/2Q0rQBI.png) - Patchoru
 
 -  [**Ishtar**](https://i.imgur.com/TGqzBzt.jpg) - october_5
 
@@ -7666,7 +7678,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**39**](https://i.imgur.com/oKkHJGT.jpg) - darkveeck
       
-      -  [**40**](https://i.imgur.com/BJtf91i.jpg) - Patchoru
+      -  [**40**](https://i.imgur.com/DTAX3c3.png) - Patchoru
       
       -  [**41**](https://i.imgur.com/mqgMRbE.png) - 9s_stan
       
@@ -7775,6 +7787,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/L2xbE6U.jpg) - Jagoslaw
 
       -  [**8**](https://cdn.discordapp.com/attachments/1018684740431270031/1019352421081817188/DLachesis.png) - Skybeat8
+
+      -  [**9**](https://i.imgur.com/Z2F8uwz.png) - Patchoru
 
 -  [**Laegjarn**](https://i.imgur.com/hOKktlq.png) - SentoriGunnah7046
 
@@ -7971,7 +7985,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**10**](https://i.imgur.com/N4aylBM.png) - MidnightLime
       
-      -  [**11**](https://i.imgur.com/853lPwv.jpg) - Patchoru
+      -  [**11**](https://i.imgur.com/PsxVDXw.png) - Patchoru
       
       -  [**12**](https://i.imgur.com/zJ7N1bK.jpg) - baeda2
       
@@ -8125,6 +8139,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/5GidicI.png) - CharaFanGirl
 
+      -  [**13**](https://i.imgur.com/1AQpAyu.png) - Patchoru
+
 -  [**Lethe**](https://i.imgur.com/OBmVd88.jpg) - Climber_Fuuka
 
       -  [**2**](https://i.imgur.com/wFC7j8W.jpg) - Slurpuffilicious
@@ -8192,6 +8208,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/z12vE0b.jpg) - Jagoslaw
 
       -  [**13**](https://media.discordapp.net/attachments/809593002707648563/1068169998620688434/IMG_7511.png?width=401&height=868) - Possible-Cancel9507
+
+      -  [**14**](https://i.imgur.com/gm72399.png) - Patchoru
 
 -  [**Libra**](https://imgur.com/pv0CGMm) - LarkNL
 
@@ -8327,7 +8345,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**38**](https://i.imgur.com/1TJyc50.jpg) - TyrekGoldenspear
       
-      -  [**39**](https://i.imgur.com/TLrES7S.jpg) - Patchoru
+      -  [**39**](https://i.imgur.com/FnGEoeo.png) - Patchoru
       
       -  [**40**](https://i.imgur.com/RKZcJhh.png) - TankyMage
       
@@ -8912,6 +8930,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**41**](https://i.imgur.com/PO6qYy1.jpeg) - JdiJwa
 
       -  [**42**](https://media.discordapp.net/attachments/222795246856044554/959771113959849984/Screenshot_20220402-125851_Fire_Emblem_Heroes.jpg) - howlinghenbane
+
+      -  [**43**](https://i.imgur.com/ss4C1cG.png) - Patchoru
 
 -  [**Lukas (Picnic)**](https://imgur.com/a/6EuSQnC) - PapiJonty
 
@@ -9843,6 +9863,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/GO70ZAT.jpg) - useless_idiot_man
 
+      -  [**27**](https://i.imgur.com/yXjGXFK.png) - Patchoru
+
 -  [**Mercedes (Summer)**](https://i.imgur.com/WmNDrVZ.jpg) - dahliamoonflowers
 
       -  [**2**](https://i.imgur.com/ZTzayig.jpg) - GameNut1811
@@ -10001,7 +10023,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/w8NRNIv.jpg) - raike1028
 
-      -  [**8**](https://i.imgur.com/TuCHy8H.jpg) - Pyrozendot
+      -  [**8**](https://i.imgur.com/4Ucwgr6.png) - Pyrozendot
 
       -  [**9**](https://i.imgur.com/BvWXJFE.jpg) - coolspark20
       
@@ -10604,6 +10626,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Narcian (Spring)**](https://abload.de/img/fefefvlkjj.jpg) - Taralyn
 
       -  [**2**](https://i.imgur.com/pnvK3tm.png) - Saints_Space
+
+      -  [**3**](https://i.imgur.com/6ROqo5i.png) - Patchoru
 
 -  [**Natasha**](https://i.imgur.com/MhJhVR7.jpg) - kieku1
 
@@ -11624,6 +11648,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://cdn.discordapp.com/attachments/294552858756382731/612043841071218718/Screenshot_20190816-155851_Fire_Emblem_Heroes.jpg) - TomatoFlakes
 
       -  [**6**](https://i.imgur.com/Ianu8xB.jpg) - ThatKoolKidOverThere
+
+      -  [**7**](https://i.imgur.com/eHSQe9A.png) - Patchoru
 
 -  [**Olwen (WoT)**](https://i.imgur.com/HVSRxiS.jpg) - dirtysmall
 
@@ -12866,6 +12892,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**29**](https://i.imgur.com/EQ5jxbP.png) - Paperio
 
       -  [**30**](https://i.imgur.com/1sZ6rqj.jpg) - IchKannDasN1cht
+
+      -  [**31**](https://i.imgur.com/AySA4UH.png) - Patchoru
 
 -  [**Robin (F Fallen Hero) (Halloween)**](https://i.imgur.com/l92paoj.png) - PM_ME_LEGIT_ANYTHING
 
@@ -14317,7 +14345,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**64**](https://i.imgur.com/HTsPjwO.jpg) - SoleilMain
       
-      -  [**65**](https://i.imgur.com/L0J2VWS.jpg) - Patchoru
+      -  [**65**](https://i.imgur.com/Jbl8j40.png) - Patchoru
       
       -  [**66**](https://i.imgur.com/PdIA4kT.jpg) - Totsutei
       
@@ -14440,6 +14468,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**30**](https://i.imgur.com/YATOsON.jpg) - A_Nifty_Person
 
       -  [**31**](https://i.imgur.com/XqR5wG2.jpg) - Toluthin
+
+      -  [**32**](https://i.imgur.com/WrYgw1j.png) - Patchoru
 
 -  [**Sophia (Halloween)**](https://i.imgur.com/hMtDYz9.jpg) - BreakfastMint
 
@@ -15975,7 +16005,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/9SKYnVq.jpg) - Pronche
       
-      -  [**6**](https://i.imgur.com/0JsuqSK.jpg) - Patchoru
+      -  [**6**](https://i.imgur.com/7ZDHzmw.png) - Patchoru
       
       -  [**7**](https://i.imgur.com/JsfjvcL.jpg) - Valsyar
       
