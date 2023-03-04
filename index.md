@@ -429,6 +429,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Artur (Winter)**](https://i.imgur.com/BHN5yqj.jpg) - duchessa13
 
+-  [**Arval**](https://i.ibb.co/BckBc3t/arval.jpg) - starlyt3
+
 -  [**Arvis**](https://i.imgur.com/krxWTXR.png) - crunk_juice34
 
       -  [**2**](https://i.gyazo.com/0672d1e0adb40ee3f1f4b7e74a258b56.png) - ZomBurt
@@ -1655,7 +1657,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**16**](https://i.imgur.com/297VIV6.png) - Malkurtz
 
-      -  [**17**](https://i.imgur.com/QswwJMe.png) - RestlessRoman
+      -  [**17**](https://i.imgur.com/tSutPMi.jpg) - RestlessRoman
 
       -  [**18**](https://i.imgur.com/jb65Vl7.png) - RisenLazarus
 
@@ -1767,7 +1769,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/HxEeMKK.png) - n_kaze_
 
-      -  [**8**](https://i.imgur.com/NNHoUrL.jpg) - RestlessRoman
+      -  [**8**](https://i.imgur.com/dqCM6sY.jpg) - RestlessRoman
 
       -  [**9**](https://i.imgur.com/hXNNb9o.jpg) - FearDubh
 
@@ -1781,7 +1783,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/8GYmggQ.jpg) - october_5
 
-      -  [**5**](https://i.imgur.com/awCti54.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/gW7M84R.jpg) - RestlessRoman
 
       -  [**6**](https://i.imgur.com/se15cbW.png) - go4ino
       
@@ -1801,7 +1803,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/hdp36OC.jpg) - Kindish
       
-      -  [**6**](https://i.imgur.com/kob0KYm.jpg) - RestlessRoman
+      -  [**6**](https://i.imgur.com/O6P3cyb.jpg) - RestlessRoman
       
       -  [**7**](https://i.imgur.com/VWRhGVe.jpg) - Caty409
 
@@ -1813,7 +1815,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/n36S4or.jpg) - MrStreeter
 
-      -  [**5**](https://i.imgur.com/Plk0qfY.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/tgopBXY.jpg) - RestlessRoman
 
       -  [**6**](https://i.imgur.com/xRRa9uv.jpg) - Caty409
 
@@ -1836,6 +1838,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/VPZngOt.jpg) - Caty409
 
       -  [**10**](https://i.imgur.com/mvS6Q3F.jpg) - MrStreeter
+
+      -  [**11**](https://i.imgur.com/5mifKYh.jpg) - RestlessRoman
 
 -  [**Camilla (Brave)**](https://i.imgur.com/3jjcZ20.jpg) - RockLeePenguin
 
@@ -1860,6 +1864,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/YwIvmDc.png) - Latibello
 
       -  [**12**](https://i.imgur.com/YXsm648.jpg) - Blizzard_PR
+
+      -  [**13**](https://i.imgur.com/bGAgcBQ.jpg) - RestlessRoman
 
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
@@ -2264,6 +2270,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**8**](https://i.imgur.com/QdpusAo.jpg) - Kaiayos
 
      -  [**9**](https://i.imgur.com/xulMrTv.png) - Patchoru
+
+-  [**Celine**](https://i.imgur.com/UG6EUdY.jpg) - SupremeShio
 
 -  [**Cervantes**](https://i.imgur.com/ZpJLZfW.jpg) - TiltControls
 
@@ -4378,6 +4386,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/o5zbfob.jpg) - FullFrontalAnal
 
+      -  [**10**](https://i.imgur.com/ZVU9tIl.jpg) - RestlessRoman
+
 -  [**Elincia (Ascended)**](https://i.imgur.com/D8GJDYT.png) - EpicRome23
 
 -  [**Elise**](http://i.imgur.com/zUfO0AN.png) - exxit5408
@@ -5056,7 +5066,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**44**](https://i.imgur.com/h6Oqnre.jpg) - Bane_of_Ruby
       
-      -  [**45**](https://i.imgur.com/2CTaezs.jpg) - RestlessRoman
+      -  [**45**](https://i.imgur.com/rogXQXU.jpg) - RestlessRoman
       
       -  [**46**](https://i.imgur.com/4qaQH2m.png) - 9s_stan
       
@@ -5690,6 +5700,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://cdn.discordapp.com/attachments/702009335542448128/928098738164097064/IMG_8929.png) - Itsmisterpool
 
+-  [**Gregor**](https://i.imgur.com/HXfg7dJ.jpg) - RestlessRoman
+
 -  [**Greil (Greil's Devoted)**](https://cdn.discordapp.com/attachments/548002260643479567/551137108778024992/Screenshot_2019-03-02-07-18-26.png) - minatoapologist
 
       -  [**2**](https://i.imgur.com/at0kgxd.jpg) - Aessir
@@ -6244,6 +6256,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**22**](https://i.imgur.com/qb8oL2N.jpg) - Caty409
 
+      -  [**23**](https://i.imgur.com/0nW5I5i.jpg) - RestlessRoman
+
 -  [**Hilda (3H) + Marianne (Summer)**](https://i.imgur.com/prQYOJC.jpg) - dahliamoonflowers
 
       -  [**2**](https://i.imgur.com/yjUSXEv.jpg) - Slurpuffilicious
@@ -6413,6 +6427,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Igrene (Ninja)**](https://i.imgur.com/JquP2qQ.jpeg) - JdiJwa
 
       -  [**2**](https://i.imgur.com/wnp5CDE.jpg) - Totsutei
+
+      -  [**3**](https://i.imgur.com/dW2Djdb.jpg) - RestlessRoman
 
 -  [**Ike**](http://i.imgur.com/8pcQ1F9.jpg) - samsationalization
 
@@ -8780,6 +8796,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/cPW6Sa6.png) - BenNegify
 
       -  [**23**](https://i.imgur.com/uKPBzfB.jpg) - ChernoRose
+
+      -  [**24**](https://i.imgur.com/AMD1xDB.jpg) - RestlessRoman
       
 -  [**Lucina (Legendary)**](https://i.imgur.com/BZ8qv4r.jpg) - shirsham
 
@@ -10127,7 +10145,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**11**](https://preview.redd.it/v1l2vxyg0hz51.jpg?width=354&auto=webp&s=aa9e4d10771e67f25b43390c7a9542090931fb3a) - GoCommitKriemhild
 
-      -  [**12**](https://i.imgur.com/yGuAqhe.jpg) - RestlessRoman
+      -  [**12**](https://i.imgur.com/hA8pIUG.jpg) - RestlessRoman
 
       -  [**13**](https://i.imgur.com/hcDCMkA.jpg) - Geomint
       
@@ -10159,7 +10177,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**14**](https://i.imgur.com/S28yv4o.jpg) - PegaponyPrince
 
--  [**Minerva (Spring)**](https://i.imgur.com/IKKtqtZ.jpg) - RestlessRoman
+-  [**Minerva (Spring)**](https://i.imgur.com/wIHd1zN.jpg) - RestlessRoman
 
       - [**2**](https://i.imgur.com/zOaFOuB.png) - Eclahn
 
@@ -10563,6 +10581,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**5**](https://i.imgur.com/s3STMTm.jpg) - YuvonGrohiik
 
+-  [**Nailah (Hatari)**](https://i.imgur.com/2Q7iQSu.jpg) - RestlessRoman
+
 -  [**Nanna**](https://i.imgur.com/DR3W5KC.jpg) - Canatee
 
       -  [**2**](https://i.imgur.com/AKXJR50.png) - Pep794
@@ -10630,6 +10650,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/bLDcVz5.png) - NightmareShane
 
 -  [**Nanna (Legendary)**](https://i.imgur.com/PpZt7of.png) - Kyrroti
+
+      -  [**2**](https://i.imgur.com/SENovy5.png) - Armino_Angd
 
 -  [**Narcian**](https://i.imgur.com/S8xsJAk.png) - dlnarshen
 
@@ -11689,7 +11711,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/reMFTGf.png) - ScythXGaming
 
-      -  [**3**](https://i.imgur.com/KX5AIGT.jpg) - RestlessRoman
+      -  [**3**](https://i.imgur.com/jfLmVQ9.jpg) - RestlessRoman
 
       -  [**4**](https://i.imgur.com/JwBxw9C.jpg) - KnifeToMeetYou_
 
@@ -11841,7 +11863,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/atpTMGf_d.jpg?maxwidth=640&shape=thumb&fidelity=medium) - Chauzu
 
-      -  [**5**](https://i.imgur.com/7XA0NPS.jpg) - RestlessRoman
+      -  [**5**](https://i.imgur.com/QWPP3X2.jpg) - RestlessRoman
 
       -  [**6**](https://i.imgur.com/Swvs5DJ.png) - Shy-
 
@@ -11852,6 +11874,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/BA1tDGR.jpg) - A_Splash_of_Citrus
 
       -  [**10**](https://i.imgur.com/xxtxeHQ.jpg) - Thingerfly
+
+-  [**Panne (New Year's)**](https://i.imgur.com/MMVJAG7.jpg) - RestlessRoman
 
 -  [**Pelleas**](https://i.imgur.com/U8mcDzq.png) - Illumina25
 
@@ -12709,7 +12733,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**26**](https://i.imgur.com/tjNvTgi.png) - sorry97
 
-      -  [**27**](https://i.imgur.com/FuZfgx4.jpg) - RestlessRoman
+      -  [**27**](https://i.imgur.com/MO8l9WR.jpg) - RestlessRoman
 
       -  [**28**](https://i.imgur.com/bDPzwUB.jpg) - myopicfirework
 
@@ -15405,6 +15429,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/zQjahd9.jpg) - Thingerfly
 
+      -  [**4**](https://i.imgur.com/gBso1N7.jpg) - RestlessRoman
+
 -  [**Tibarn**](https://i.imgur.com/cL6daEj.jpg) - Faithhandler
 
       -  [**2**](https://i.redd.it/ed20wk1fgze21.png) - MisterKong
@@ -15883,6 +15909,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/HNVoTW0.png) - RestlessRoman
 
+-  [**Ursula (Khadein)**](https://i.imgur.com/wiOJ6kX.jpg) - RestlessRoman
+
 -  [**Valbar**](https://i.imgur.com/OapvGnc.jpg) - MetaTriforce
 
       -  [**2**](https://i.imgur.com/6Os76Za.png) - X-pert74
@@ -15976,6 +16004,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**7**](https://i.imgur.com/JF5BGG8.jpg) - XinchoStellar
 
       - [**8**](https://i.imgur.com/Q6ID0K3.jpg) - Caty409
+
+-  [**Veronica (Legendary)**](https://i.ibb.co/sws5zZF/veronica.jpg) - starlyt3
 		
 -  [**Vika (Pirate)**](https://i.imgur.com/pFiVrR5.jpg) - Lathel
 
