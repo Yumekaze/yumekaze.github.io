@@ -15275,6 +15275,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/x4xPQHO.png) - KyroNoHane
 
+-  [**Tana (Rearmed)**](https://cdn.discordapp.com/attachments/906761957577736193/1086238958641483826/Fire_Emblem_Heroes_2023-03-17-05-16-11.png) - Random546
+
 -  [**Tanith**](https://i.imgur.com/CyGEqMl.png) - MajorasKatana
 
       -  [**2**](https://i.imgur.com/uvPghJB.jpg) - Slurpuffilicious
