@@ -5696,6 +5696,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/MoSzHGR.jpeg) - JdiJwa
 
+-  [**Gilliam**](https://i.redd.it/9n4c3h8wcyoa1.png) - Arlockin
+
 -  [**Gonzalez**](https://drive.google.com/file/d/1uFBOwtraVgbY1J_t5Mfzcj-msb2tgoXN/view) - Important_Ad4176
 
 -  [**Gordin**](https://pbs.twimg.com/media/DOJPJXTU8AEbjYy.jpg) - SH1NJ1 
@@ -6391,6 +6393,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/dVx51xf.jpg) - wat-dha-fak
 
       -  [**6**](https://i.imgur.com/PVCpgPx.png) - seastarcrossing
+
+      -  [**7**](https://i.imgur.com/e9hBrpQ.jpg) - symmphonic
 
 -  [**Hrid (New Year's)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
 
