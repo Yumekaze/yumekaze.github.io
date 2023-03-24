@@ -1881,6 +1881,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**13**](https://i.imgur.com/bGAgcBQ.jpg) - RestlessRoman
 
+-  [**Camilla (Ninja)**](https://i.imgur.com/dTBBd27.jpg) - TheJGohShow
+
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
       -  [**2**](https://i.imgur.com/pfz2twu.jpg) - Shuyomi
@@ -5459,6 +5461,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/1vhp2St.png) - BenNegify
 
       -  [**19**](https://media.discordapp.net/attachments/537420602466762772/948467252125122590/IMG_7144.png) - Florina_Best_Girl
+
+-  [**Fomortiis**](https://i.imgur.com/SK3OxvU.png) - Jagoslaw
 
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
@@ -16075,6 +16079,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**7**](https://i.imgur.com/puiKmNK.png) - Saints_Space
 
+-  [**Vanessa**](https://i.imgur.com/4EyaraH.jpg) - kieku1
+
 -  [**Veld**](https://i.imgur.com/BXa0MmS.jpg) - keyver-C
 
       -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/913242707533656134/image0.png) - BobbyYukitsuki
@@ -16146,6 +16152,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**8**](https://i.imgur.com/Q6ID0K3.jpg) - Caty409
 
 -  [**Veronica (Legendary)**](https://i.ibb.co/sws5zZF/veronica.jpg) - starlyt3
+
+      -  [**2**](https://i.imgur.com/WQuUTrP.png) - ShadowMLuigi
 		
 -  [**Vika (Pirate)**](https://i.imgur.com/pFiVrR5.jpg) - Lathel
 
