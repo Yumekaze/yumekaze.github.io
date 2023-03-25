@@ -7136,6 +7136,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**25**](https://i.imgur.com/9D1MO15.jpeg) - NightmareShane
 
+      -  [**26**](https://cdn.discordapp.com/attachments/967245762813632633/1089277542625722429/Screenshot_20230325-125522.png) - Katerpu
+
 -  [**Juno (Bridal)**](https://i.imgur.com/E7UKpjQ.png) - Galevayu05
 
       -  [**2**](https://i.imgur.com/sEU7tNO.png) - Nintentoast
