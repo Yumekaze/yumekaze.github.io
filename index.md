@@ -9853,6 +9853,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/hztsmwu.jpg) - SuddenJami
 
+      -  [**3**](https://i.imgur.com/GxdUvnr.png) - mk3jjj
+
 -  [**Mathilda**](http://i.imgur.com/gS4tZvU.png) - exxit5408
 
       -  [**2**](https://i.imgur.com/VHKRJ8s.jpg) - MegaTerrabyte
