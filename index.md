@@ -4053,6 +4053,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**53**](https://i.redd.it/ygyz1fk71tla1.jpeg) - TrueCrime_Nerd
 
+-  [**Effie (Valentine's)**](https://i.imgur.com/uTmbftq.jpg) - MisoSoup247
+
+      -  [**2**](https://cdn.discordapp.com/attachments/906761957577736193/1093500973852393502/Fire_Emblem_Heroes_2023-04-06-06-41-57.jpg) - Random546
+
 -  [**Eir**](https://i.imgur.com/ELh3Xh8.png) - Rabbytt
 
       -  [**2**](https://i.imgur.com/qlFw9rp.jpg) - dirtysmall
@@ -14357,7 +14361,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/XACTjj1.jpg) - BreakfastMint
 
-      -  [**4**](https://i.imgur.com/zAUjxik.png) - MisoSoup247
+      -  [**4**](https://i.imgur.com/14iYo9a.png) - MisoSoup247
 
       -  [**5**](https://i.imgur.com/oLftsKC.jpg) - BreakfastMint
       
