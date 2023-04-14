@@ -15425,7 +15425,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**8**](https://i.imgur.com/GnlNHGF.png) - IDontCareByThisPoint
 
-      -  [**9**](https://i.imgur.com/AGngrCr.png) - ScythXGaming
+      -  [**9**](https://i.imgur.com/IGc7X7j.png) - ScythXGaming
 
       -  [**10**](https://i.imgur.com/k4vJnBr.jpeg) - SorcererHex
 
@@ -15434,8 +15434,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/IR2GQ7G.jpg) - Jagoslaw
 
       -  [**13**](https://i.imgur.com/hblY0TH.jpg) - Caty409
-
-      -  [**14**](https://i.imgur.com/IGc7X7j.png) - ScythXGaming
 
 -  [**Tatiana**](https://i.imgur.com/HG2CMoS.png) - Blizzardthree
 
