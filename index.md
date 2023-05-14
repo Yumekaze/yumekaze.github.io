@@ -3515,6 +3515,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Dedue**](https://i.imgur.com/8OiST4e.png) - MeraMera27
 
+      -  [**2**](https://i.imgur.com/KsxigIL.png) - JJrules146
+
 -  [**Deen (Hatari)**](https://media.discordapp.net/attachments/222795246856044554/993498282229764156/Screenshot_20220704-144519_Fire_Emblem_Heroes.jpg) - howlinghenbane
 
       -  [**2**](https://i.imgur.com/zKZcGvy.png) - mindthetimes
@@ -4379,6 +4381,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/1ZCJRlW.png) - Blurgawurgakree
 
 -  [**Eirika (Summer)**](https://i.imgur.com/mi74rPZ.jpg) - ckAr0n
+
+      -  [**2**](https://i.imgur.com/gGipb4m.png) - Soren319
 
 -  [**Eitri**](https://i.redd.it/aw0kyyi55r281.png) - Paiguy7
 
@@ -5283,6 +5287,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Fernand**](https://i.imgur.com/Yc7evY0.png) - Tollomer
 
       -  [**2**](https://media.discordapp.net/attachments/743698517461041163/875279923827339264/Screenshot_20210812_151247.jpg) - ukantor
+
+      -  [**3**](https://i.imgur.com/GwRNCPp.jpg) - Ridoji
 
 -  [**Finn**](https://i.imgur.com/N821g61.jpg) - MegaEspeon
 
@@ -6959,6 +6965,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**19**](https://i.imgur.com/3paVI61.jpg) - Starspeedrunner
 
       -  [**20**](https://i.imgur.com/Z1ZmogO.png) - Whirlwhind
+
+      -  [**21**](https://cdn.discordapp.com/attachments/1038456558926962728/1102950597369548800/Screenshot_20230406_182510_Fire_Emblem_Heroes.jpg) - iloveh-----
 
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
@@ -12225,6 +12233,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Pent**](https://i.imgur.com/O7YVeYb.png) - Aetherryn
 
+      -  [**2**](https://i.imgur.com/lhw5I2u.jpg) - Impish
+
 -  [**Peony**](https://i.imgur.com/m29FLaC.jpg) - Rabbytt
 
       -  [**2**](https://i.imgur.com/hoqqIOU.jpg) - Dollyche
@@ -12274,6 +12284,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**15**](https://i.imgur.com/L1txNLj.png) - CzarKhasm
 
       -  [**16**](https://i.imgur.com/1kosuAo.png) - _Hati_05
+
+      -  [**17**](https://i.imgur.com/gzYh33s.jpg) - This_0ne_Person
       
 -  [**Petra**](https://i.imgur.com/CcuDvs4.png) - mewtwoniteX
 
