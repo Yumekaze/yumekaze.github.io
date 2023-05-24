@@ -3081,6 +3081,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Cordelia + Selena (Fates) (Winter)**](https://i.imgur.com/7eZ7QPH.jpg) - Trashris
 
+      -  [**2**](https://cdn.discordapp.com/attachments/878104709574041650/1110743735672774766/IMG_5529.png) - ItsBeyondMe
+
 -  [**Cormag**](https://cdn.discordapp.com/attachments/431207047715880961/664300244950843392/CORMAG10.png) - Ryzer28
 
       -  [**2**](https://i.imgur.com/gU0PMmi.jpg) - thunderunited16
