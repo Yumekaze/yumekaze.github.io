@@ -196,6 +196,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**30**](https://i.imgur.com/id2BF6J.png) - NightmareShane
  
      -  [**31**](https://i.imgur.com/GrJOy3a.png) - ShadowMLuigi
+ 
+     -  [**32**](https://cdn.discordapp.com/attachments/967245762813632633/1129923030508916836/Screenshot_20230715-184515.png) - Katerpu
 
 -  [**Altina**](https://i.imgur.com/NxLWIRN.jpg) - Kami-San
 
@@ -426,6 +428,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**54**](https://i.imgur.com/bp7xVv7.png) - TheLeiss
 
       -  [**55**](https://i.imgur.com/TTAWHMm.png) - maku098
+ 
+      -  [**56**](https://cdn.discordapp.com/attachments/967245762813632633/1129923028638248970/Screenshot_20230715-184606.png) - Katerpu
 
 -  [**Arete**](https://i.imgur.com/zrEj5Of.jpg) - CzarKhasm
 
@@ -1292,6 +1296,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**44**](https://i.imgur.com/ck6Kge6.png) - SirHopper
 
       -  [**45**](https://i.imgur.com/hMFwhY5.png) - Candy_Warlock
+ 
+      -  [**46**](https://cdn.discordapp.com/attachments/967245762813632633/1129923029217058906/Screenshot_20230715-184554.png) - Katerpu
 
 -  [**Black Knight (Winter)**](https://cdn.discordapp.com/attachments/927040592880484402/1053240979907428403/Miso_PlusTenWinterBlackKnight.png) - MisoSoup247
 
@@ -2736,6 +2742,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/o2V7bGC.png) - BlackStar300
 
       -  [**3**](https://i.imgur.com/5Y8WZmt.png) - souicune
+ 
+      -  [**4**](https://cdn.discordapp.com/attachments/967245762813632633/1129923033906294794/Screenshot_20230715-184337.png) - Katerpu
 
 -  [**Chrom (Rearmed)**](https://i.imgur.com/U9y4cRz.png) - BlackStar300
 
@@ -4549,6 +4557,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/hGiCz4P.jpg) - Metrocoral
 
       -  [**14**](https://i.imgur.com/votJSXM.jpg) - BigBaraTitts
+ 
+      -  [**15**](https://cdn.discordapp.com/attachments/967245762813632633/1129923032618651698/Screenshot_20230715-184351.png) - Katerpu
 
 -  [**Eleonora**](https://i.imgur.com/4SCIBVQ.jpg) - Diligent_Slacker
 
@@ -7045,6 +7055,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**12**](https://i.imgur.com/2Q0rQBI.png) - Patchoru
 
       -  [**13**](https://i.imgur.com/7so3AwH.png) - maku098
+ 
+      -  [**14**](https://cdn.discordapp.com/attachments/967245762813632633/1129923032077574184/Screenshot_20230715-184448.png) - Katerpu
 
 -  [**Ishtar**](https://i.imgur.com/TGqzBzt.jpg) - october_5
 
@@ -8630,6 +8642,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**15**](https://i.imgur.com/vbNjCG9.jpg) - jlaweez
 
       -  [**16**](https://i.imgur.com/zQ6wfPe.png) - RoseCelebi
+ 
+      -  [**17**](https://cdn.discordapp.com/attachments/967245762813632633/1129923033298116658/Screenshot_20230715-184404.png) - Katerpu
 
 -  [**Libra**](https://imgur.com/pv0CGMm) - LarkNL
 
@@ -9762,6 +9776,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**21**](https://cdn.discordapp.com/attachments/768469796118331412/1017118354584125461/Screenshot_20220907-200501_Fire_Emblem_Heroes.jpg) - ZipperQR
 
       -  [**22**](https://i.imgur.com/vkCdllZ.png) - maukarov
+ 
+      -  [**23**](https://cdn.discordapp.com/attachments/967245762813632633/1129923028034265211/Screenshot_20230715-184624.png) - Katerpu
 
 -  [**Malice**](https://i.imgur.com/xKwuDh2.jpg) - RestlessRoman
 
@@ -13148,6 +13164,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**37**](https://i.imgur.com/qwfeess.jpg) - Moosewheat
 
       -  [**38**](https://i.imgur.com/3L02oWA.png) - maku098
+ 
+      -  [**39**](https://cdn.discordapp.com/attachments/967245762813632633/1129923029997203486/Screenshot_20230715-184529.png) - Katerpu
 
 -  [**Rhajat**](https://i.imgur.com/aUj9hyx.png) - Lachrymosity
 
@@ -14288,6 +14306,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Seliph (Brave)**](https://cdn.discordapp.com/attachments/573783024072654858/1031715507134550056/IMG_2653.jpeg) - KujoQtaro
 
       -  [**2**](https://i.imgur.com/omm39P1.jpg) - roflwaffler
+ 
+      -  [**3**](https://cdn.discordapp.com/attachments/967245762813632633/1129923044287205446/Screenshot_20230715-184325.png) - Katerpu
 
 -  [**Selkie**](https://cdn.discordapp.com/attachments/544239046172344322/548343494125551646/Screenshot_2019-02-21-22-29-48.png) - AureusVulpes292
 
@@ -15360,6 +15380,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**63**](https://i.imgur.com/IyigasS.png) - secondvoyager
 
       -  [**64**](https://i.imgur.com/Dg5ECod.jpg) - Moosewheat
+ 
+      -  [**65**](https://cdn.discordapp.com/attachments/967245762813632633/1129923030974476338/Screenshot_20230715-184504.png) - Katerpu
 
 -  [**Soren (Greil's Devoted)**](https://cdn.discordapp.com/attachments/380482610683707395/544155650855534623/image0.png) - star-light-trip
 
