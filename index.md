@@ -12,7 +12,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 ----
 
 -  [**Abel**](https://i.redd.it/7k66m391uutz.png) - Swedish_Fear
-
+  
       -  [**2**](https://i.imgur.com/LeJlYcb.jpg) - FullFrontalAnal 
 
       -  [**3**](https://i.imgur.com/NrIuyx7.png) - Yurio-
@@ -2954,6 +2954,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/vldyBnB.jpg) - Phaaze13
 
       -  [**12**](https://i.imgur.com/JkbhW9J.jpeg) - Green_Uncle
+ 
+      -  [**13**](https://i.imgur.com/UjEeXfU.jpeg) - ItsIdeka
 
 -  [**Conrad (Valentine's)**](https://i.imgur.com/zbcuilt.jpg) - goldenchocobokitty
 
@@ -3116,6 +3118,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**75**](https://i.imgur.com/QASRMiq.jpg) - jlaweez
 
       -  [**76**](https://i.imgur.com/dL3LdHS.png) - maku098
+ 
+      -  [**77**](https://i.imgur.com/hSC1D1f.jpg) - ItsIdeka
 
 -  [**Cordelia (Bride)**](http://i.imgur.com/tEP2tMD.png) - exxit5408
 
@@ -3484,6 +3488,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**40**](https://i.imgur.com/hfPb0lm.jpg) - useless_idiot_man
 
       -  [**41**](https://i.imgur.com/Y9ehG21.jpg) - JrHresvelg
+ 
+      -  [**42**](https://i.imgur.com/AvYTuQs.jpg) - ItsIdeka
 
 -  [**Corrin (M Adrift)**](https://imgur.com/mEtVsxO) - northwind789
 
@@ -5207,6 +5213,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**75**](https://i.imgur.com/B4ucYq6.jpg) - MisoSoup247
 
       -  [**76**](https://i.imgur.com/pQYz8Nn.png) - TheLeiss
+ 
+      -  [**77**](https://i.imgur.com/X8xlz4J.jpg) - ItsIdeka
 
 -  [**Fae (Winter)**](https://i.imgur.com/YGZhO5b.jpg) - Rabbytt
 
@@ -8870,6 +8878,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/5guNc8H.jpg) - Blaz_69
 
       -  [**4**](https://i.imgur.com/Oldvvsv.jpg) - SendMeHotDudeNudes
+ 
+      -  [**5**](https://i.imgur.com/c8KVLJG.jpg) - ItsIdeka
 
 -  [**Linde**](https://i.imgur.com/YIc1YuS.png) - equiNine
 
@@ -8920,6 +8930,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/o6107Kf.jpg) - StormAurora
 
       -  [**12**](https://i.imgur.com/4U5exDs.jpg) - SendMeHotDudeNudes
+ 
+      -  [**13**](https://i.imgur.com/LjRWaoU.jpg) - ItsIdeka
 
 -  [**Linus**](https://i.imgur.com/JbOYYcR.jpg) - IsidoreTheSloth
 
@@ -13196,6 +13208,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/qjMSEin.jpg) - Flashgridcraft
 
 -  [**Rickard (Thief)**](https://media.discordapp.net/attachments/809593002707648563/1119649805258457199/IMG_8263.png?width=401&height=868) - Possible-Cancel9507
+      -  [**2**](https://i.imgur.com/h0sdpti.jpg) - ItsIdeka
 
 -  [**Riev**](https://i.imgur.com/n8jqsaI.jpg) - Metroplex7
 
@@ -13656,6 +13669,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/0lYB2Wz.jpeg) - JdiJwa
 
       -  [**5**](https://i.imgur.com/EXtArHo.jpg) - Lemonzest974
+ 
+      -  [**6**](https://i.imgur.com/ZiSwXeG.jpg) - MetroCoral
 
 -  [**Ross**](https://i.imgur.com/7ve6XSZ.jpg) - Belligero_
 
