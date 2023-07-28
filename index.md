@@ -8405,6 +8405,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/6HBbMeg.jpg) - Totsutei
 
       -  [**3**](https://i.imgur.com/syL3C2G.jpg) - BigBaraTitts
+ 
+      -  [**4**](https://i.imgur.com/3jecwtH.png) - G-N-S
 
 -  [**Laslow**](https://i.redd.it/6bifqhy1p8tz.jpg) - SebaProh 
 
@@ -9786,7 +9788,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/hgKtuT7.png) - HystericalTrend
 
-      -  [**4**](https://i.imgur.com/ewH8Tu5.jpeg) - LyreConnoisseur
+      -  [**4**](https://i.imgur.com/Bh3ZwV0.png) - LyreConnoisseur
 
 -  [**Lysithea**](https://i.imgur.com/DRsrCzr.jpg) - YukikazeNJ
 
