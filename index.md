@@ -2857,7 +2857,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**7**](https://i.imgur.com/9gTjoF8.jpg) - Haydos823
 
-      -  [**8**](https://i.imgur.com/4yQQqal.png) - LittleIslander
+      -  [**8**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884135784992978/IMG_8283.png) - LittleIslander
 
       -  [**9**](https://i.imgur.com/jvirgnM.jpg) - selhelm
 
@@ -3852,6 +3852,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/VZLrzXD.png) - G-N-S
 
       -  [**5**](https://i.imgur.com/AjkJtly.png) - Blurgawurgakree
+ 
+      -  [**6**](https://cdn.discordapp.com/attachments/1042210980714795060/1137886975685300285/IMG_8286.png) - LittleIslander
 
 -  [**Donnel**](https://i.imgur.com/zpPF8Lb.jpg) - dcho1
 
@@ -4276,6 +4278,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://cdn.discordapp.com/attachments/906761957577736193/1093500973852393502/Fire_Emblem_Heroes_2023-04-06-06-41-57.jpg) - Random546
 
       -  [**3**](https://i.imgur.com/D7O0ybq.jpg) - TiltControls
+ 
+      -  [**4**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884130286239814/IMG_8280.png) - LittleIslander
 
 -  [**Eir**](https://i.imgur.com/ELh3Xh8.png) - Rabbytt
 
@@ -4746,7 +4750,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**21**](https://i.imgur.com/V6DMXd9.png) - recarmloss
 
-      -  [**22**](https://i.imgur.com/0mPEO2Z.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**22**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882607720345750/Screenshot_20230806_235559_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
       -  [**23**](https://i.imgur.com/enl7COP.jpg) - thomasawesome55
 
@@ -4943,6 +4947,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/ig4CXam.jpg) - MisogID
       
       -  [**12**](https://i.imgur.com/CmjBJ00.jpg) - Neiooking
+ 
+      -  [**13**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882606671777872/Screenshot_20230806_235531_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
 -  [**Ephraim (Legendary)**](https://i.imgur.com/lBRaMud.jpg) - PM_ME_YOUR_WHALE
 
@@ -4974,7 +4980,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ephraim (Winter)**](https://i.imgur.com/B9EAeEZ.jpg) - Demestro
 
-      -  [**2**](https://i.imgur.com/sCWCYeI.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**2**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882606113927249/Screenshot_20230806_235524_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
       -  [**3**](https://cdn.discordapp.com/attachments/967245762813632633/1066934518231089262/Screenshot_20230120-202656.png) - Katerpu
 
@@ -4986,7 +4992,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**4**](https://preview.redd.it/v6cqehltw2461.png?width=1080&format=png&auto=webp&s=7c963f5cdba328f9c80c7cb53c1d7c07f050a0a9) - justinator119
 
-      -  [**5**](https://i.imgur.com/SNkuUYH.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**5**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882607099580506/Screenshot_20230806_235539_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
       
 -  [**Eremiya**](https://i.imgur.com/258vwG6.jpg) - Camping_Noob
 
@@ -5079,6 +5085,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**28**](https://i.imgur.com/5AAnExl.jpg) - JdiJwa
 
       -  [**29**](https://i.imgur.com/AKI8DzN.png) - PM_INCINEROAR_DICK
+ 
+      -  [**30**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884132790251530/IMG_8278.png) - LittleIslander
 
 -  [**Est (Spring)**](https://i.imgur.com/t09JRny.png) - Basaqu
 
@@ -5758,7 +5766,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**12**](https://i.imgur.com/X74snMd.png) - Mishokabg
 
-      -  [**13**](https://cdn.discordapp.com/attachments/291701550022393857/667622611282558986/image0.png) - LittleIslander
+      -  [**13**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884132307894312/IMG_8279.png) - LittleIslander
       
       -  [**14**](https://i.imgur.com/n99ClKB.jpeg) - SorcererHex
       
@@ -7532,6 +7540,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/ppBF0Km.png) - Meltlilith
 
       -  [**5**](https://i.imgur.com/u3x8lBd.jpg) - dukeaegir
+ 
+      -  [**6**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884128365260800/IMG_8284.png) - LittleIslander
 
 -  [**Kaden**](https://i.imgur.com/Tg6UQoq.jpg) - Kadensan
 
@@ -7627,7 +7637,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**39**](https://cdn.discordapp.com/attachments/753794131276595291/885312444845682709/image0.png)  - BobbyYukitsuki
 
-      -  [**40**](https://i.imgur.com/0C0gsEt.jpg) - LittleIslander
+      -  [**40**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884134388289587/IMG_8275.png) - LittleIslander
 
       -  [**41**](https://i.imgur.com/ZciXhab.jpg) - A_Splash_of_Citrus
 
@@ -8525,6 +8535,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/EiHJ68x.jpg) - Stalkos
 
       -  [**4**](https://i.imgur.com/EgnRLyn.jpg) - Moosewheat
+ 
+      -  [**5**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884134920958003/IMG_8281.png) - LittleIslander
 
 -  [**Leif**](https://i.imgur.com/KZnmJEk.jpg) - october_5
 
@@ -8830,7 +8842,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**15**](https://i.imgur.com/400blMk.jpg) - BlazeBloom
 
-      -  [**16**](https://i.imgur.com/YCAhePE.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**16**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882605593825341/Screenshot_20230806_235512_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
       -  [**17**](https://i.imgur.com/Fwc3SFf.jpg) - Totsutei
 
@@ -9688,7 +9700,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/dDtWWLv.png) - Nintentoast
 
-      -  [**3**](https://i.imgur.com/7vSQi9z.png) - LittleIslander
+      -  [**3**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884153535283280/IMG_8276.png) - LittleIslander
 
       -  [**4**](https://i.imgur.com/gU0ZZvE.jpg) - 8bitowners
 
@@ -12443,6 +12455,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/ZfjwjcU.jpg) - patrickfahey
 
       -  [**10**](https://i.imgur.com/BtvrAve.jpg) - Tery_
+ 
+      -  [**11**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884133658460170/IMG_8277.png) - LittleIslander
 
 -  [**Orson**](https://cdn.discordapp.com/attachments/753794131276595291/885312472599379968/image0.png) - BobbyYukitsuki
 
@@ -13871,7 +13885,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**10**](https://i.imgur.com/P3KxhiF.jpg) - battle0tortoise 
 
-      -  [**11**](https://i.imgur.com/K5VDuqs.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**11**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882603718979664/Screenshot_20230806_235353_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
       -  [**12**](https://i.imgur.com/gKQxA3Z.png) - MiLiBi_
 
@@ -13949,7 +13963,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/eiJWZgY.jpg) - jaesuk97
 
-      -  [**3**](https://i.imgur.com/11LwOmp.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**3**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882604436213880/Screenshot_20230806_235409_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
       
       -  [**4**](https://i.imgur.com/Kk5VONY.png) - go4ino
 
@@ -13959,7 +13973,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/27XWRXA.jpg) - PM_ME_YOUR_WHALE
 
-      -  [**3**](https://i.imgur.com/jjwnAJw.png) - PM_ME_EDGEWORTH_NUDE
+      -  [**3**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882605233131590/Screenshot_20230806_235435_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
 -  [**Roy (Legendary)**](https://i.imgur.com/a4DgwyN.jpg) - abros_vii
 
@@ -13972,8 +13986,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/VKJlUXr.png) - Nintentoast
 
       -  [**6**](https://i.imgur.com/VQSMlXk.jpeg) - JdiJwa
+ 
+      -  [**7**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882604029358181/Screenshot_20230806_235400_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
--  [**Roy + Eliwood (Groom)**](https://i.imgur.com/zIWVONy.png) - PM_ME_EDGEWORTH_NUDE
+-  [**Roy + Eliwood (Groom)**](https://cdn.discordapp.com/attachments/1137882533766381609/1137882604872413184/Screenshot_20230806_235427_Fire_Emblem_Heroes.jpg) - PM_ME_EDGEWORTH_NUDE
 
       -  [**2**](https://i.imgur.com/E8pZ7Mc.png) - Phenollam
 
@@ -14164,6 +14180,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/IDRzL06.jpg) - Toluthin
 
       -  [**27**](https://i.imgur.com/A43jtpu.jpg) - PEACHPRINCESS
+ 
+      -  [**28**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884129099251833/IMG_8285.png) - LittleIslander
 
 -  [**Sakura (Halloween)**](https://i.imgur.com/rYuldc4.png) - exxit5408
 
@@ -14678,6 +14696,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**6**](https://i.imgur.com/Hhfcy7x.jpg) - Caty409
 
       - [**7**](https://i.imgur.com/CQuemyi.png) - TheLeiss
+ 
+      - [**8**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884129720021042/IMG_8282.png) - LittleIslander
 
 -  [**Shanna**](http://i.imgur.com/iDzD1QR.png) - StirFryTuna 
 
