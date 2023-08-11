@@ -11059,6 +11059,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/Nvq7jCT.jpg) - Moosewheat
  
       -  [**5**](https://i.imgur.com/vl02blB.png) - RottenCaterpillar
+ 
+-  [**Murdock**](https://i.imgur.com/SIyAt6p.png) - Blizzardthree
 
 -  [**Muspell**](https://i.imgur.com/9m8fn98.jpg) - HeavenlySeraph
 
@@ -13348,6 +13350,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Rickard (Thief)**](https://media.discordapp.net/attachments/809593002707648563/1119649805258457199/IMG_8263.png?width=401&height=868) - Possible-Cancel9507
       -  [**2**](https://i.imgur.com/h0sdpti.jpg) - ItsIdeka
+ 
+-  [**Ricken**](https://i.imgur.com/ns63txe.png) - Blizzardthree
 
 -  [**Riev**](https://i.imgur.com/n8jqsaI.jpg) - Metroplex7
 
