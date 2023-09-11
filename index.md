@@ -2183,6 +2183,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Catria (SoV)**](https://i.ibb.co/D4GxcJH/Screenshot-20221101-010103-Fire-Emblem-Heroes.jpg) - Yoshieatsyourpie
 
+-  [**Catria (Wind)**](https://cdn.discordapp.com/attachments/753794131276595291/1150271013096001668/IMG_5362.png) - BobbyYukitsuki
+
 -  [**Cecilia**](https://i.imgur.com/Hy9uEzP.png) - Lucille_FE
 
       -  [**2**](http://i.imgur.com/BJB7q5G.png) - exxit5408
