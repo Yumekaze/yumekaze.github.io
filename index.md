@@ -3240,6 +3240,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/wzeIDiE.jpg) - morgana_eden
  
       -  [**3**](https://i.imgur.com/29yLJVL.jpg) - Sprocket3
+ 
+      -  [**4**](https://i.imgur.com/EAjOLrZ.jpg) - jlaweez
 
 -  [**Corrin (F)**](https://i.imgur.com/U3iUou6.png) - MrNinja1234
 
@@ -4326,6 +4328,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/D7O0ybq.jpg) - TiltControls
  
       -  [**4**](https://cdn.discordapp.com/attachments/1042210980714795060/1137884130286239814/IMG_8280.png) - LittleIslander
+ 
+      -  [**5**](https://i.imgur.com/MN5atxV.jpg) - jlaweez
 
 -  [**Eir**](https://i.imgur.com/ELh3Xh8.png) - Rabbytt
 
@@ -4737,6 +4741,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/qBRpWZ7.jpg) - rainbowsnivy
 
 -  [**Elincia (Ascended)**](https://i.imgur.com/D8GJDYT.png) - EpicRome23
+
+-  [**Elincia (Legendary)**](https://i.imgur.com/2uvaWEH.png) - EpicRome23
 
 -  [**Elise**](http://i.imgur.com/zUfO0AN.png) - exxit5408
 
@@ -9643,6 +9649,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/y1XOvzb.png) - 101perry
  
       -  [**14**](https://cdn.discordapp.com/attachments/877777006467637289/1147208321846235156/IMG_4242.png) - DarkSlayer415
+ 
+      -  [**15**](https://i.imgur.com/w4T0HLi.jpg) - jlaweez
 
 -  [**Lute**](https://i.imgur.com/R5mjIVJ.png) - exxit5408
 
@@ -15030,6 +15038,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/Mjq1YFn.jpg) - Sprocket3
  
       -  [**5**](https://i.imgur.com/7BUKWXW.jpg) - zedabo
+ 
+      -  [**6**](https://i.imgur.com/6mT61IC.jpg) - jlaweez
+ 
+-  [**Shez (M) (Summer)**](https://cdn.discordapp.com/attachments/967245762813632633/1142023813828198410/Screenshot_2023-08-18-21-14-27-58_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
+
+      -  [**2**](https://i.imgur.com/7quyVOJ.jpg) - TiltControls
 
 -  [**Shigure (Performing)**](https://i.imgur.com/QP6fkg4.png) - exxit5408
 
@@ -15044,10 +15058,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://cdn.discordapp.com/attachments/524378883882221568/542298043442003968/image.png) - CinnamonStarlight
 
       -  [**7**](https://i.imgur.com/KExh6yH.png) - n_kaze_
- 
--  [**Shez (M) (Summer)**](https://cdn.discordapp.com/attachments/967245762813632633/1142023813828198410/Screenshot_2023-08-18-21-14-27-58_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
-
-      -  [**2**](https://i.imgur.com/7quyVOJ.jpg) - TiltControls
 
 -  [**Shigure (WoF)**](https://i.imgur.com/qekFtdb.jpg) - ANTH1357
 
