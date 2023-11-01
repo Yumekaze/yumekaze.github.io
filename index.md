@@ -11697,12 +11697,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/pH4Q2c0.jpg) - LoneRyKo
 
       -  [**4**](https://i.imgur.com/0BkFT2K.jpg) - Dexiriev
- 
-      -  [**5**](https://i.imgur.com/54xq2HX.jpg) - Mogekov
 
 -  [**Nils (Halloween)**](https://i.imgur.com/2jGCIwf.jpeg) - Dexiriev
 
-      -  [**2**](https://i.imgur.com/q1fMRUd.png) - Mogekov
+      -  [**2**](https://i.imgur.com/54xq2HX.jpg) - Mogekov
  
       -  [**3**](https://media.discordapp.net/attachments/809593002707648563/1119649586391298119/IMG_8262.png?width=401&height=868) - Possible-Cancel9507
 
