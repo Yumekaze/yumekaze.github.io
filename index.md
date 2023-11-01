@@ -3253,7 +3253,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**18**](https://i.imgur.com/IopIIK1.jpg) - DatGomez
 
--  [**Cornelia**](https://i.imgur.com/OItEtlH.png) - Mogekov
+-  [**Cornelia**](https://i.imgur.com/OoJN3HB.png) - Mogekov
 
       -  [**2**](https://i.imgur.com/wzeIDiE.jpg) - morgana_eden
  
@@ -11697,6 +11697,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/pH4Q2c0.jpg) - LoneRyKo
 
       -  [**4**](https://i.imgur.com/0BkFT2K.jpg) - Dexiriev
+ 
+      -  [**5**](https://i.imgur.com/54xq2HX.jpg) - Mogekov
 
 -  [**Nils (Halloween)**](https://i.imgur.com/2jGCIwf.jpeg) - Dexiriev
 
@@ -13665,7 +13667,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
      -  [**34**](https://preview.redd.it/1ufo8ysolfz91.jpg?width=750&format=pjpg&auto=webp&s=6c708aa626418dbccab86ee7888cbf3352ecb2d0) - Swiftwhiskers
 
-     -  [**35**](https://i.imgur.com/gz77gbc.png) - ShadowMario3
+     -  [**35**](https://i.imgur.com/3TWHbs2.png) - ShadowMario3
  
      -  [**36**](https://i.imgur.com/putsPJP.jpg) - Sprocket3
 
@@ -13793,7 +13795,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**62**](https://i.imgur.com/BbcGV1Q.png) - Whirlwhind
 
-      -  [**63**](https://i.imgur.com/S8Ucw5D.png) - ShadowMario3
+      -  [**63**](https://i.imgur.com/EXWGiAU.png) - ShadowMario3
  
       -  [**64**](https://i.imgur.com/kIWI5b8.jpg) - SoupcanSam
 
@@ -13807,7 +13809,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://cdn.discordapp.com/attachments/1018684740431270031/1018699859991216158/WRobin.png) - Skybeat8
 
-      -  [**6**](https://i.imgur.com/XfjBBVZ.png) - ShadowMario3
+      -  [**6**](https://i.imgur.com/OhOgnXM.png) - ShadowMario3
 
       -  [**7**](https://i.imgur.com/OXsQzGp.png) - SirHopper
 
@@ -13944,6 +13946,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Robin (F Fallen Hero) (Halloween)**](https://i.imgur.com/l92paoj.png) - PM_ME_LEGIT_ANYTHING
 
    -  [**2**](https://i.imgur.com/y0mQYEi.jpg) - jdotremy
+ 
+   -  [**3**](https://i.imgur.com/C0Y60j6.png) - ShadowMario3
 
 -  [**Robin (F Valentine's)**](https://i.imgur.com/gvQUR3N.jpg) - DoveCannon
 
@@ -13954,6 +13958,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/mD7Jwur.jpg) - Psistriker94
 
       -  [**3**](https://i.imgur.com/zQ4njqS.jpg) - StormAurora
+ 
+      -  [**4**](https://i.imgur.com/1rH3jzE.png) - ShadowMario3
 
 -  [**Robin (M) (Legendary)**](https://i.imgur.com/K63cwCG.png) - ShadowMario3
 
