@@ -1,4 +1,4 @@
-__The r/FireEmblemHeroes 5\* Lv.40+10 Build Compendium__
+![image](https://github.com/Yumekaze/yumekaze.github.io/assets/22208040/ebdc418a-22b8-4926-8f6e-4d0a7bd50690)__The r/FireEmblemHeroes 5\* Lv.40+10 Build Compendium__
 -
 
 This is meant to highlight feats of dedication in the community, so submissions should be tied directly to a reddit username and have the permission of the owner.
@@ -3265,7 +3265,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**19**](https://i.imgur.com/S9bNkUo.jpg) - Metrocoral
 
--  [**Cornelia**](https://i.imgur.com/OoJN3HB.png) - Mogekov
+-  [**Cornelia**](https://i.imgur.com/8eP6EIE.png) - Mogekov
 
       -  [**2**](https://i.imgur.com/wzeIDiE.jpg) - morgana_eden
  
@@ -5229,6 +5229,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/atA2ReO.png) - BlazeBloom
  
       -  [**4**](https://i.imgur.com/146kNbN.png) - Navaldeus
+ 
+      -  [**5**](https://i.imgur.com/8VcJExp.png) - ShadowMLuigi
 
 -  [**Eyvel**](https://i.imgur.com/4Cok2xc.jpg) - Kaiayos
 
@@ -7208,7 +7210,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://i.imgur.com/3LyFFgX.jpg) - yulanan
 
--  [**Ilyana (Child)**](https://i.imgur.com/gkcOoY4.png) - ZeroCalroieMSG
+-  [**Ilyana (Child)**](https://i.imgur.com/xm78GiM.png) - ZeroCalroieMSG
 
       -  [**2**](https://i.imgur.com/QLNlgg1.jpg) - Caty409
 
@@ -7375,6 +7377,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/iewsKHb.png) - BlazeBloom\
  
       -  [**23**](https://i.imgur.com/dlu15F7.png) - solussss
+ 
+-  [**Ivy (Summer)**](https://i.imgur.com/7dBH4Zd.png) - kieku1
 
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
@@ -10052,6 +10056,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/dFi36NR.jpg) - Slurpuffilicious
 
       -  [**4**](https://i.imgur.com/e4TqXBI.jpg) - XinchoStellar
+ 
+-  [**Lysithea (Teatime)**](https://i.imgur.com/kvAq6ki.png) - ShadowMLuigi
 
 -  [**Mae**](https://i.imgur.com/da4Pqe1.png) - exxit5408
 
