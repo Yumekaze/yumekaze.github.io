@@ -4648,6 +4648,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Eitr**](https://i.imgur.com/bt5soeO.jpg) - effieluvr
 
+      -  [**2**](https://imgur.com/a/zXoXzYC#81rEhdq) - Aaronwebber9
+
 -  [**Eitri**](https://i.redd.it/aw0kyyi55r281.png) - Paiguy7
 
       -  [**2**](https://i.imgur.com/PtPrlT5.jpg) - KHNephrite
@@ -17273,8 +17275,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.ibb.co/RStB3N4/50-A21618-6697-47-CC-B581-C65-FBC74-EEC8.png) - Earthliving
 
       -  [**3**](https://imgur.com/a/L7HlIXa) - EmblianScum
- 
-      -  [**4**](https://cdn.discordapp.com/attachments/877777006467637289/1147208323507163146/IMG_4245.png) - DarkSlayer415
 
 -  [**Veronica + Xander (Pirate)**](https://i.imgur.com/Cvz2pBG.jpg) - RainbowThePheonix
 
