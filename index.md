@@ -8645,6 +8645,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Lapis**](https://i.imgur.com/v5KaDmX.png) - lordb0rf
 
+-  [**Lara**](https://cdn.discordapp.com/attachments/906761957577736193/1194567340348686377/Fire_Emblem_Heroes_2024-01-10-03-02-52.jpg?ex=65b0d287&is=659e5d87&hm=d19071a725e18cf6303fe06de5e448d275343ea0031652d3760571f09e1abe34&) - Random546
+
 -  [**Larcei**](https://i.imgur.com/59y4FFO.jpg) - TheKboos
 
       -  [**2**](https://i.imgur.com/9DJbWTk.jpg) - LordDmoney
