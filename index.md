@@ -5443,6 +5443,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Fafnir (New Year's)**](https://preview.redd.it/salzakk8r3l91.png?width=392&auto=webp&s=5c09aa31fc3e7c13c152083e490038963a4dc20d) - Valaura-
 
       - [**2**](https://i.imgur.com/FlnKWHv.png) - Aetherryn
+ 
+-  [**Fargus**](https://cdn.discordapp.com/attachments/702009335542448128/1201785124086087760/Screenshot_20240130_020440_Fire_Emblem_Heroes.jpg?ex=65cb149d&is=65b89f9d&hm=c9c2f3fa3c818fe7f7d51fbd04b409874feedc777fd7d5b1fdcdda053e5bb080&) - EMAIL_ME_PHOENIX_SFW
 
 -  [**Farina**](https://i.imgur.com/LWP6CwX.png) - Tosutei
 
