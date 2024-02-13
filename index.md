@@ -5015,6 +5015,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**69**](https://i.imgur.com/dzzo9nt.jpg) - ListlessSoul
  
       -  [**70**](https://i.imgur.com/MxL5NmI.jpg) - Blazeing2
+ 
+      -  [**71**](https://cdn.discordapp.com/attachments/702009335542448128/1206899609306267718/Screenshot_20240213-034232.png?ex=65ddafd9&is=65cb3ad9&hm=3eba4fc1fee3dcece414f2affb3dcac588bbfdccd2fadc4caf3c080dce7749cd&) - Beard-Loving-Gamer
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
@@ -5049,6 +5051,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/omK4Uj7.jpg) - Tery_
 
       -  [**17**](https://media.discordapp.net/attachments/870734445886464070/1026203467359989810/Screenshot_20221002-143843.png) - peababyy
+ 
+      -  [**18**](https://cdn.discordapp.com/attachments/702009335542448128/1206899610015109160/Screenshot_20240213-034358.png?ex=65ddafda&is=65cb3ada&hm=6b3f6249b192c032a92fd546d843f2fd46c758beaf4e21abff6800339b7c9990&) - Beard-Loving-Gamer
 
 -  [**Eliwood (Brave)**](https://i.imgur.com/Qa4cEJL.png) - Phenollam
 
@@ -11396,6 +11400,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**51**](https://i.imgur.com/PhQQodw.jpg) - CzarKhasm
  
       -  [**52**](https://i.imgur.com/ZtzFaHK.png) - Rowan_18
+ 
+      -  [**53**](https://cdn.discordapp.com/attachments/702009335542448128/1206899611009290290/Screenshot_20240213-034455.png?ex=65ddafda&is=65cb3ada&hm=f6191996584d7333af2dd28042660392ddbc43ab3dc2dcb8472000b082087178&) - Beard-Loving-Gamer
 
 -  [**Morgan (F) (Fallen)**](https://i.imgur.com/l79vURR.jpg) - jdotremy
 
@@ -11414,6 +11420,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/vl02blB.png) - RottenCaterpillar
  
       -  [**6**](https://i.imgur.com/HrkzbKi.png) - Latibello
+ 
+      -  [**7**](https://cdn.discordapp.com/attachments/702009335542448128/1206899612883877908/Screenshot_20240213-034613.png?ex=65ddafda&is=65cb3ada&hm=0d8ba243fabc0b848b246c110a40607c97ab805d04917b26a00f29acc83a3b02&) - Beard-Loving-Gamer
  
 -  [**Murdock**](https://i.imgur.com/SIyAt6p.png) - Blizzardthree
 
@@ -15048,6 +15056,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**25**](https://i.imgur.com/I9YwG25.png) - PrisonerLeet
 
       -  [**26**](https://i.imgur.com/Z3GllkQ.png) - nostradonist
+ 
+      -  [**27**](https://cdn.discordapp.com/attachments/702009335542448128/1206899611885637663/Screenshot_20240213-034537.png?ex=65ddafda&is=65cb3ada&hm=ac931c46d348bec81a9098a1c97961a073c1976ef161653640daa7a10522df1c&) - Beard-Loving-Gamer
 
 -  [**Seth**](http://i.imgur.com/my1Sfyx.png) - exxit5408 	
 
