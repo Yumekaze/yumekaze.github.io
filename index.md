@@ -10925,7 +10925,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/RPHXayn.png) - mindthetimes
 
-      -  [**18**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693698793482/Screenshot_2022-08-18-21-11-57-51_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
+      -  [**18**](https://cdn.discordapp.com/attachments/274081189894291457/1009751693971443732/Screenshot_2022-08-18-21-12-00-79_08ec35600c34dc2fc5d3c148e5878b88.jpg?ex=65d7100c&is=65c49b0c&hm=3d65a4d7e34bd88a46180497ca57a65b4aff2c99b1eed9b11ef2dd33146b49fa&) - Yumekaze
 
 -  [**Merric (Young)**](https://i.imgur.com/MkO022u.jpg) - GlassOtter
 
