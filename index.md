@@ -7472,6 +7472,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Ivy (Summer)**](https://i.imgur.com/7dBH4Zd.png) - kieku1
 
+      -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/1207822566933266512/Screenshot_20240215-175520_Fire_Emblem_Heroes.jpg?ex=65e10b6c&is=65ce966c&hm=aa01504d1493cf19bb20f7353ea4e3cfaa14bf660424db4eec766d05197843b3&) - Secretsword229
+
 -  [**Jaffar**](https://i.imgur.com/Y22IJEX.jpg) - KatDaddy021
 
       -  [**2**](https://i.imgur.com/s4UOR4c.png) - Berk4823
