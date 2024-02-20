@@ -21,7 +21,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/s9TMENE.jpg) - Pronche
 
-      -  [**6**](https://i.imgur.com/6giRZIm.png) - BobbyYukitsuki
+      -  [**6**](https://cdn.discordapp.com/attachments/753794131276595291/1209340007882424340/IMG_6468.png?ex=65e690a6&is=65d41ba6&hm=a8814ef594dc79e9456368aacafcc16421eeea147cd5a277c87935fb283fbe22&) - BobbyYukitsuki
 
       -  [**7**](https://i.imgur.com/PI6LASw.png) - Geeene
 
@@ -1751,7 +1751,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/oe3zi1R.png) - Aromantic_Benzene
 
-      -  [**5**](https://i.imgur.com/wKuFuVr.png) - BobbyYukitsuki
+      -  [**5**](https://cdn.discordapp.com/attachments/753794131276595291/1209340007073054850/IMG_6467.png?ex=65e690a6&is=65d41ba6&hm=b1665fc4a006bb459858a8ea00d43d81ddd8004946c9d3df69ff355ee33d3053&) - BobbyYukitsuki
       
       -  [**6**](https://i.imgur.com/coMFCvM.png) - Excellus
 
@@ -7653,6 +7653,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/rdN3Cqu.png) - NightmareShane
 
       -  [**8**](https://i.imgur.com/lrajOnp.jpg) - Caty409
+ 
+      -  [**9**](https://cdn.discordapp.com/attachments/753794131276595291/1209339980007219210/IMG_6472.png?ex=65e6909f&is=65d41b9f&hm=a1f66967401977d8e511de4d3d82a2e267ee8a5c63bd0f5a5aa1c1e9c55a7bf2&) - BobbyYukitsuki
 
 -  [**Joshua**](https://cdn.discordapp.com/attachments/507269185408073746/618103969184612362/Screenshot_20190810-192925__01.jpg) - AudhulmaBoy
 
@@ -9112,6 +9114,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/5FnJVsQ.png) - UsuallyImLazy
  
       -  [**3**](https://i.imgur.com/XInRA9B.jpg) - UtsuruK
+ 
+      -  [**4**](https://cdn.discordapp.com/attachments/753794131276595291/1209339980670046259/IMG_6471.png?ex=65e6909f&is=65d41b9f&hm=753c1960b3d66c34ab8498e4e4f327eb6eb40c407e59cb02d456e4e9f0e6f11f&) - BobbyYukitsuki
 
 -  [**Lilina**](https://i.imgur.com/KeuVFgT.jpg) - SpeedyHawk
 
@@ -14737,6 +14741,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**8**](https://i.imgur.com/b5eCqTv.jpg) - Metrocoral
  
+      -  [**9**](https://cdn.discordapp.com/attachments/753794131276595291/1209339981932396594/IMG_6473.png?ex=65e690a0&is=65d41ba0&hm=a5dadd580359dbf7e88c8423c39f2babdfdfef4920f66f1db0832b39aab619d8&) - BobbyYukitsuki
+ 
 -  [**Seidr**](https://i.imgur.com/vLuj5Kb.jpg) - ShadowMLuigi
 
 -  [**Seiros**](https://i.imgur.com/Xk0PdZ4.jpg) - NohrianScumbag
@@ -15376,6 +15382,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/y0WDLXE.png) - Navaldeus
  
       -  [**9**](https://i.imgur.com/Ra5xQOw.png) - Candy_Warlock
+ 
+      -  [**10**](https://cdn.discordapp.com/attachments/753794131276595291/1209339979218813040/IMG_6469.png?ex=65e6909f&is=65d41b9f&hm=f7d43e97867ba4d91b397af5ecd842ab039cb02819b298004439bb5752a9076a&) - BobbyYukitsuki
  
 -  [**Shez (M) (Summer)**](https://cdn.discordapp.com/attachments/967245762813632633/1142023813828198410/Screenshot_2023-08-18-21-14-27-58_08ec35600c34dc2fc5d3c148e5878b88.jpg) - Yumekaze
 
@@ -17604,6 +17612,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/rnnTUEn.jpg) - Lemonzest974
  
       -  [**5**](https://i.imgur.com/wdSIPWW.jpeg) - Metrocoral
+ 
+      -  [**6**](https://cdn.discordapp.com/attachments/753794131276595291/1209339981185679402/IMG_6470.png?ex=65e6909f&is=65d41b9f&hm=df5d13a8588806aaace89a679f44ba7c52580cfae906dab8ad40f642b196492a&) - BobbyYukitsuki
 
 -  [**Walhart**](https://i.imgur.com/02LRqWg.png)  - EchoCrescent	
 
