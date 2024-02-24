@@ -7113,6 +7113,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://cdn.discordapp.com/attachments/410254755278094338/769035235940892742/image1.png) - xOiram_
 
       -  [**14**](https://i.imgur.com/tZgKkNP.jpg) - TiltControls
+ 
+      -  [**15**](https://cdn.discordapp.com/attachments/702009335542448128/1210745600379981824/IMG_7695.jpg?ex=65ebadb5&is=65d938b5&hm=0e79277127d345b643e2050d985ed634646f8521208b17552001d53b0dab1e4d&) - LordIkeVegeta
 
 -  [**Ike (Brave)**](https://i.imgur.com/zQY6AQr.png) - PkPhreak_official
 
@@ -7187,6 +7189,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**36**](https://i.imgur.com/4RNT4p9.jpg) - RestlessRoman
 
       -  [**37**](https://i.imgur.com/Uq7pMZ6.jpg) - SkyWanderer
+ 
+      -  [**38**](https://cdn.discordapp.com/attachments/702009335542448128/1210745602355503155/IMG_7700.jpg?ex=65ebadb6&is=65d938b6&hm=f3295d9985af15ee29fc3186033ab302181affff8d843fc8f9ae2f81ac5a9862&) - LordIkeVegeta
 
 -  [**Ike (Legendary)**](https://i.imgur.com/DGqWXvI.png) - Sadistice
 
@@ -7233,6 +7237,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/E1zqmS3.png) - secondvoyager
 
       -  [**23**](https://i.imgur.com/hGZzpQh.jpg) - Moosewheat
+ 
+      -  [**24**](https://cdn.discordapp.com/attachments/702009335542448128/1210745601407451167/IMG_7697.jpg?ex=65ebadb5&is=65d938b5&hm=4db8c9592687fa530459d313480320f501d76528a6ea686974b9a238cc5d0884&) - LordIkeVegeta
 
 -  [**Ike (Greil's Devoted)**](https://i.redd.it/w7l4a8tmebf21.png) - Sadistice
 
@@ -7253,8 +7259,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**7**](https://i.imgur.com/Fga2Sd2.png) - secondvoyager
 
       -  [**8**](https://i.imgur.com/6hogRFG.jpg) - Moosewheat
+ 
+      -  [**9**](https://cdn.discordapp.com/attachments/702009335542448128/1210745601730543646/IMG_7698.jpg?ex=65ebadb6&is=65d938b6&hm=c1cfd9f0f652fdecf8a55ce7fc9ed15a6fa6b17176d69febd493406881409f39&) - LordIkeVegeta
 
 -  [**Ike + Mist (Young)**](https://i.imgur.com/HNgrbxN.png) - Caelholdt
+
+      -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/1210745600912662588/IMG_7696.jpg?ex=65ebadb5&is=65d938b5&hm=510923faae4d1f09044965ac9af568303ae80efae9060ab50e1f40e4f357fd65&) - LordIkeVegeta
       
 -  [**Ilyana**](https://i.imgur.com/sE2h7Pi.jpg) - CptnHandsome
 
