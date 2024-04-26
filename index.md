@@ -12028,7 +12028,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Nils (Halloween)**](https://i.imgur.com/2jGCIwf.jpeg) - Dexiriev
 
-      -  [**2**](https://i.imgur.com/um3zEQA.png) - Mogekov
+      -  [**2**](https://i.imgur.com/XP7necn.png) - Mogekov
  
       -  [**3**](https://media.discordapp.net/attachments/809593002707648563/1119649586391298119/IMG_8262.png?width=401&height=868) - Possible-Cancel9507
 
@@ -14170,7 +14170,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**62**](https://i.imgur.com/BbcGV1Q.png) - Whirlwhind
 
-      -  [**63**](https://i.imgur.com/EXWGiAU.png) - ShadowMario3
+      -  [**63**](https://i.imgur.com/hdHShrE.png) - ShadowMario3
  
       -  [**64**](https://i.imgur.com/kIWI5b8.jpg) - SoupcanSam
 
@@ -14184,7 +14184,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://cdn.discordapp.com/attachments/1018684740431270031/1018699859991216158/WRobin.png) - Skybeat8
 
-      -  [**6**](https://i.imgur.com/OhOgnXM.png) - ShadowMario3
+      -  [**6**](https://i.imgur.com/H6yDNn3.png) - ShadowMario3
 
       -  [**7**](https://i.imgur.com/OXsQzGp.png) - SirHopper
 
@@ -14338,7 +14338,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**5**](https://i.imgur.com/YiYpcko.jpg) - Historical_Pick_9962
 
--  [**Robin (M) (Legendary)**](https://i.imgur.com/K63cwCG.png) - ShadowMario3
+-  [**Robin (M) (Legendary)**](https://i.imgur.com/kumwrcQ.png) - ShadowMario3
 
       -  [**2**](https://i.imgur.com/a5K4o4b.jpg) - Aqua-Dot
  
@@ -14354,9 +14354,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
      -  [**3**](https://i.imgur.com/VJO1SpD.jpg) - RestlessRoman
 
--  [**Robin (M) (Brave)**](https://i.imgur.com/H8YmH3x.png) - ShadowMario3
+-  [**Robin (M) (Brave)**](https://i.imgur.com/aN05xti.png) - ShadowMario3
 
      -  [**2**](https://i.imgur.com/vyB6jro.png) - RoseCelebi
+ 
+-  [**Robin (M) (Young)**](https://i.imgur.com/ixLbk9z.png) - ShadowMario3
+
+-  [**Robin (F) + Chrom (Young)**](https://i.imgur.com/7xAPLNr.png) - ShadowMario3
 
 -  [**Roderick**](https://i.imgur.com/6YL47MQ.jpg) - oPlaiD 
 
