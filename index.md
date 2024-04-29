@@ -14360,7 +14360,9 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Robin (M) (Young)**](https://i.imgur.com/ixLbk9z.png) - ShadowMario3
 
--  [**Robin (F) + Chrom (Young)**](https://i.imgur.com/7xAPLNr.png) - ShadowMario3
+-  [**Robin (F) + Chrom (Young)**](https://cdn.discordapp.com/attachments/753796194832220171/1234321051303809055/IMG_1902.png?ex=66304e8f&is=662efd0f&hm=a19a4cb61d81b4ea408475bc6d42b14bf46b42eb07113191cae502dc937ddfe5&) - scarletflowers
+
+      -  [**2**](https://i.imgur.com/7xAPLNr.png) - ShadowMario3
 
 -  [**Roderick**](https://i.imgur.com/6YL47MQ.jpg) - oPlaiD 
 
