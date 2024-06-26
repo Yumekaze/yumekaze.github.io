@@ -551,7 +551,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**3**](https://i.imgur.com/3EGpect.jpg) - Lord_Ice_Tea_Green
 
--  [**Ashe (Spring)**](https://i.imgur.com/qBouKLH.png) - Mogekov
+-  [**Ashe (Spring)**](https://i.imgur.com/Tt3NeFm.png) - Mogekov
 
 -  [**Ashera**](https://i.imgur.com/OcIr19V.jpg) - Faithispower
 
@@ -3106,6 +3106,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/u06FGMG.jpg) - Blazeing2
  
       -  [**7**](https://i.imgur.com/n22bFg1.png) - _vinventure
+ 
+      -  [**8**](https://i.imgur.com/Wtt2Jiv.jpg) - gingerbreadcookie131
 
 -  [**Conrad**](https://i.imgur.com/FoeMnlD.jpg) - myopicfirework
 
@@ -11475,6 +11477,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/R3uc5o9.png) - Navaldeus
 
       -  [**4**](https://i.imgur.com/Q2DhN7u.png) - souicune
+ 
+      -  [**5**](https://i.imgur.com/41uMB51.jpg) - gingerbreadcookie131
 
 -  [**Mist**](https://i.imgur.com/lkKDkfF.png) - YorozuyaTrio
 
@@ -16943,6 +16947,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/7tJHM8c.jpg) - Lemonzest974
  
       -  [**7**](https://i.imgur.com/lImzmsL.jpg) - DatGomez
+ 
+      -  [**8**](https://i.imgur.com/02J3PN1.jpg) - gingerbreadcookie131
 
 -  [**Tanith (Bridal)**](https://i.imgur.com/lWPEQsX.jpg) - IMrHappy
       
