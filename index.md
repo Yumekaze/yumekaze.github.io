@@ -7126,6 +7126,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Hrid (New Year's)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
 
       -  [**2**](https://i.imgur.com/9a5oJPD.png) - seastarcrossing
+ 
+-  [**Hrid (Summer)**](https://i.imgur.com/sKvqoiv.jpg) - seastarcrossing
 
 -  [**Hubert**](https://i.imgur.com/3WoVRZV.png) - yulanan
 
