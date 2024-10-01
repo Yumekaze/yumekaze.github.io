@@ -5186,6 +5186,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**70**](https://i.imgur.com/MxL5NmI.jpg) - Blazeing2
  
       -  [**71**](https://cdn.discordapp.com/attachments/702009335542448128/1206899609306267718/Screenshot_20240213-034232.png?ex=65ddafd9&is=65cb3ad9&hm=3eba4fc1fee3dcece414f2affb3dcac588bbfdccd2fadc4caf3c080dce7749cd&) - Beard-Loving-Gamer
+ 
+      -  [**72**](https://i.imgur.com/4H72uu5.jpeg) - FellMarie
 
 -  [**Eliwood (Love Abounds)**](https://i.imgur.com/Oqr1cnt.png) - go4ino
 
