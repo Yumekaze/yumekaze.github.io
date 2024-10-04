@@ -50,6 +50,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/RJwPE6o.jpg) - ShadowMLuigi
  
       -  [**3**](https://i.imgur.com/x19Mif7.jpeg) - FellMarie
+ 
+      -  [**4**](https://i.imgur.com/RHBm4Zf.png) - _vinventure
 
 -  [**Alfonse (HatF)**](https://i.imgur.com/Y60coWC.png) - nyxduplex
 
@@ -4592,6 +4594,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/b4bK2by.png) - ScythXGaming
  
       -  [**7**](https://i.imgur.com/Aqmj8MU.png) - Navaldeus
+ 
+      -  [**8**](https://i.imgur.com/0uR0sKx.png) - _vinventure
 
 -  [**Eir**](https://i.imgur.com/ELh3Xh8.png) - Rabbytt
 
@@ -6476,6 +6480,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://pbs.twimg.com/media/FxgxgX9WYAA9M3G?format=jpg&name=large) - SuperSnivMatt
  
       -  [**4**](https://i.imgur.com/bTfPNTH.png) - G-N-S
+ 
+-  [**Glen**](https://i.imgur.com/tzItRui.jpg) - Blizzardthree
 
 -  [**Gonzalez**](https://drive.google.com/file/d/1uFBOwtraVgbY1J_t5Mfzcj-msb2tgoXN/view) - Important_Ad4176
 
@@ -6692,6 +6698,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/FVd2MEG.png) - Rowan_18
  
       -  [**17**](https://i.imgur.com/RiarYgk.jpg) - DatGomez
+ 
+      -  [**18**](https://i.imgur.com/ez4Fecy.png) - _vinventure
 
 -  [**Haar (Ninja)**](https://i.imgur.com/D2X1T1f.jpg) - Robby_luigi
 
@@ -8302,6 +8310,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Kana (M) (New Year's)**](https://i.imgur.com/u1IZq3K.jpg) - montblanc__
 
 -  [**Kana (F) (New Year's)**](https://i.imgur.com/SjFF1jC.jpg) - ShadowMLuigi
+
+      - [**2**](https://i.imgur.com/8YQSc19.png) - _vinventure
 
 -  [**Karel**](http://i.imgur.com/FlxFYMt.png) - exxit5408
 
@@ -10540,11 +10550,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/LYSQv1w.jpg) - Metrocoral
  
-      -  [**6**](https://i.imgur.com/IJJrJ7d.png) - _vinventure
+      -  [**6**](https://i.imgur.com/xL3XHQS.png) - _vinventure
  
       -  [**7**](https://i.imgur.com/MLNi70b.png) - RoseCelebi
  
       -  [**8**](https://i.imgur.com/xbNQsjq.png) - TheOldWestern
+ 
+-  [**Lyon + Eirika (Valentine's)**](https://i.imgur.com/2YKVW3a.png) - _vinventure
 
 -  [**Lyre (New Year's)**](https://i.imgur.com/YhZzJSo.jpg) - Totsutei
 
@@ -11249,6 +11261,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/NZ3zCl0.jpg) - AshaTelethia
  
       -  [**3**](https://i.imgur.com/jaQUkCG.png) - TinyTiger1234
+ 
+      -  [**4**](https://i.imgur.com/AL5KZAp.png) - _vinventure
 
 -  [**Medeus**](https://i.imgur.com/OgUiQA2.jpg) - Slurpuffilicious
 
@@ -15643,6 +15657,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**16**](https://i.imgur.com/m8ZuEra.jpg) - LinkaFlame
 
       -  [**17**](https://i.imgur.com/EBQFlf0.jpg) - Moosewheat
+ 
+      -  [**18**](https://i.imgur.com/oPYrvCD.png) - _vinventure
 
 -  [**Seth (Summer)**](https://i.imgur.com/yAMo6oq.jpeg) - RevolutioFalco
 		
@@ -16639,6 +16655,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/WYeGTJn.png) - gaming_whatever
 
       -  [**3**](https://i.imgur.com/7HIAtAT.jpg) - surprisecenter
+ 
+      -  [**4**](https://i.imgur.com/ECKn6P7.png) - _vinventure
 
 -  [**Soren (Khadein)**](https://i.imgur.com/owGROo9.jpg) - Komeiji11
 
@@ -16649,6 +16667,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       - [**2**](https://imgur.com/VPUDOk2) - _vinventure
 
 -  [**Soren (Brave)**](https://i.imgur.com/UPtKpvd.png) - Fate1316
+
+      -  [**2**](https://i.imgur.com/W5HzH8F.png) - _vinventure
 
 -  [**Sothe**](https://i.imgur.com/EL6hSmi.png) - Faithhandler
 
@@ -18177,6 +18197,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/1ytsuIu.jpg) - bioniclop18
  
       -  [**9**](https://i.imgur.com/R2ZgRpl.jpg) - Lemurhart
+ 
+      -  [**10**](https://i.imgur.com/pUJ43nL.png) - _vinventure
  
 -  [**Veyle (Mythic)**](https://i.imgur.com/MObkb8a.png) - Aaronwebber9
 
