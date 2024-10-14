@@ -10,7 +10,7 @@ If you would like to update a previous submission, simply post a top level comme
 If you have any questions, you can [contact the r/FireEmblemHeroes mod team](https://www.reddit.com/message/compose?to=%2Fr%2FFireEmblemHeroes&subject=&message=)
 
 ----
-
+<details>
 -  [**Abel**](https://i.redd.it/7k66m391uutz.png) - Swedish_Fear
   
       -  [**2**](https://i.imgur.com/LeJlYcb.jpg) - FullFrontalAnal 
@@ -1000,6 +1000,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/osodRue.jpg) - arisgjaodosd
 
       -  [**6**](https://i.imgur.com/GqMjMa1.jpg) - Toluthin
+</details>
 
 -  [**Balthus**](https://i.imgur.com/onLfuUh.jpg) - TiltControls
 
