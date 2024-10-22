@@ -18422,12 +18422,6 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**8**](https://i.imgur.com/I2SMwiC.png) - Gotta-Snatch-Em-All
 
-</details>
-
-<details>
-
-<summary>X</summary>
-
 -  [**Xander**](https://i.imgur.com/4qOQUIf.png) - Avo006
 
       -  [**2**](https://i.imgur.com/4BucwXO.png) - Erebosio
