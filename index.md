@@ -6520,6 +6520,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/AlYvkgP.png) - Pit_Solitayrh
 
       -  [**9**](https://i.imgur.com/hdIHUIz.jpg) - BreakfastMint
+ 
+      -  [**10**](https://i.imgur.com/fhxRtb5.jpg) - duchessa13
 
 -  [**Genny (Picnic)**](https://cdn.discordapp.com/attachments/263516248057315329/570780411739766835/Screenshot_2019-04-24-20-10-59.png) - shoyooo
 
@@ -13655,6 +13657,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/FAzXLVi.jpeg) - Totsutei
  
       -  [**3**](https://i.imgur.com/faEIRSm.png) - Navaldeus
+ 
+      -  [**4**](https://i.imgur.com/f8i1r18.jpg) - duchessa13
 
 -  [**Panne**](https://i.imgur.com/dRFTUBV.png) - HystericalTrend
 
@@ -17345,6 +17349,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.ibb.co/vByPNxX/Screenshot-20221101-010144-Fire-Emblem-Heroes.jpg) - Yoshieatsyourpie
  
       -  [**9**](https://i.imgur.com/xpnaKWZ.jpeg) - tomat0me
+ 
+      -  [**10**](https://i.imgur.com/NvIhaw6.jpg) - duchessa13
 
 -  [**Takumi (Fallen)**](https://i.ibb.co/hL7hGtG/Screenshot-20221101-010136-Fire-Emblem-Heroes.jpg) - Yoshieatsyourpie
 
