@@ -1845,7 +1845,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.redd.it/1v30smfda5cb1.png) - mk3jjj
 
--  [**Caellach**](https://cdn.discordapp.com/attachments/702009335542448128/810406558416109598/Screenshot_20210214-180224.png) - Ryzer28
+-  [**Caellach**](https://i.imgur.com/BcVyv2Y.jpeg) - Ryzer28
 
       -  [**2**](https://i.imgur.com/8kdblc3.jpg) - Emperor_Polybius
 
@@ -2150,6 +2150,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/0FQF1hr.png) - RestlessRoman
  
       -  [**3**](https://i.imgur.com/5kpgDrE.png) - BlazeBloom
+ 
+      -  [**4**](https://i.imgur.com/nQ2o0L0.jpeg) - Ryzer28
 
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
@@ -2234,6 +2236,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/NU6TqAZ.jpg) - Totsutei
       
 -  [**Catherine**](https://i.imgur.com/1D3CPNk.jpg) - Climber_Fuuka
+
+      -  [**2**](https://preview.redd.it/4zdescmljfbe1.jpeg?width=1179&format=pjpg&auto=webp&s=e2566fa452bcb08f4ed5b02c556e724e7ccd3341) - PartyTimePauline
 
 -  [**Catria**](http://i.imgur.com/Hv5PuCy.png) - exxit5408
 
@@ -3262,6 +3266,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Constance**](https://i.imgur.com/8oKlx39.jpg) - Ghotistyx_
 
       -  [**2**](https://i.imgur.com/rVzJqCG.jpg) - RotomGuy
+ 
+      -  [**3**](https://preview.redd.it/z6pxdlcijfbe1.jpeg?width=1179&format=pjpg&auto=webp&s=91afdc1a1c52ad7438e2b9188866f0066c4e2fca) - PartyTimePauline
 
 -  [**Cordelia**](https://i.imgur.com/Ip9WAHh.png) - SilverMagnum
 
@@ -3453,7 +3459,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**3**](https://i.imgur.com/Angge96.png) - Jagoslaw
 
--  [**Cormag**](https://cdn.discordapp.com/attachments/702009335542448128/1206883886144028752/Screenshot_20240213-194303.jpg?ex=65dda135&is=65cb2c35&hm=a8b8bee93e3bb8c589e9074e44d8800ff688f9960f368aa988b394efb5e9b69d&) - Ryzer28
+-  [**Cormag**](https://i.imgur.com/pdeq8tc.jpeg) - Ryzer28
 
       -  [**2**](https://i.imgur.com/gU0PMmi.jpg) - thunderunited16
 
@@ -4145,7 +4151,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**17**](https://i.imgur.com/7VkXsb4.jpg) - sitta_canadensis
 
-      -  [**18**](https://cdn.discordapp.com/attachments/702009335542448128/1206883886949203968/Screenshot_20240213-194408.jpg?ex=65dda135&is=65cb2c35&hm=42b656bb989f4e6e3906037ff2d4f9e3ca5d1a0e566ed7f9a72c96ba9c71faba&) - Ryzer28
+      -  [**18**](https://i.imgur.com/zCMQpqu.jpeg) - Ryzer28
 
       -  [**19**](https://i.imgur.com/ExnSEfJ.jpg) - trionfi
 
@@ -4163,7 +4169,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/5BdCrT4.jpg) - TiltControls
 
-      -  [**5**](https://cdn.discordapp.com/attachments/702009335542448128/1206883886508937267/Screenshot_20240213-194402.jpg?ex=65dda135&is=65cb2c35&hm=5358c0b9d8412793d15302c6ea8b47de7b1e2c87298ff8a72f7dedae288324b5&) - Ryzer28
+      -  [**5**](https://i.imgur.com/tB0avUV.jpeg) - Ryzer28
 
       -  [**6**](https://i.imgur.com/FRKRkM9.jpg) - Kaiayos
 
@@ -4189,7 +4195,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Dimitri (Fallen)**](https://i.imgur.com/qro2Xvi.jpg) - Apprehensive-Tree308
 
-      -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/928098452892704848/Screenshot_20220105-123126_Fire_Emblem_Heroes.jpg) - Ryzer28
+      -  [**2**](https://i.imgur.com/zaG6Ltu.jpeg) - Ryzer28
 
       -  [**3**](https://cdn.discordapp.com/attachments/788649007512682536/959831370031571034/IMG_9935.png) - wortmore
 
@@ -4210,6 +4216,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/o5rCTiH.jpeg) - RevolutioFalco
  
       -  [**3**](https://i.imgur.com/YU8PXz5.png) - SLName
+ 
+      -  [**4**](https://i.imgur.com/5M7BHyV.jpeg) - Ryzer28
 
 -  [**Dithorba**](https://i.imgur.com/WpxWuTk.png) - SirRemzy
 
@@ -5622,6 +5630,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/yb18QsU.png) - Important_Ad4176
  
       -  [**7**](https://i.imgur.com/I5RVEES.jpeg) - FellMarie
+ 
+      -  [**8**](https://i.imgur.com/46TlcRP.jpeg) - Ryzer28
 
 -  [**Eyvel**](https://i.imgur.com/4Cok2xc.jpg) - Kaiayos
 
@@ -6691,7 +6701,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Guinivere (Legendary)**](https://i.imgur.com/WxyOtQ4.png) - 
  
--  [**Gullveig (Brave)**](https://cdn.discordapp.com/attachments/702009335542448128/1142282146350899361/Screenshot_20230819-122108.png) - Ryzer28
+-  [**Gullveig (Brave)**](https://i.imgur.com/G4W6zLd.jpeg) - Ryzer28
 
       -  [**2**](https://i.imgur.com/sV1dQ9x.jpg) - GameAW
  
@@ -6844,6 +6854,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**17**](https://i.imgur.com/RiarYgk.jpg) - DatGomez
  
       -  [**18**](https://i.imgur.com/ez4Fecy.png) - _vinventure
+ 
+      -  [**19**](https://i.imgur.com/EHL7tf5.jpeg) - Ryzer28
 
 -  [**Haar (Ninja)**](https://i.imgur.com/D2X1T1f.jpg) - Robby_luigi
 
@@ -7160,6 +7172,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Hel**](https://i.redd.it/h5w2vn5td0e51.png) - Joshuaxe7
 
       -  [**2**](https://i.imgur.com/JqrivEy.png) - Govictory
+ 
+      -  [**3**](https://preview.redd.it/n21n8vrqjfbe1.jpeg?width=1179&format=pjpg&auto=webp&s=fe923dc60c4c2a2723524f30120b7283374bb611) - PartyTimePauline
 
 -  [**Helbindi**](https://i.imgur.com/MH4OmLK.png) - HeavenlySeraph
 
@@ -7242,6 +7256,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/P6bTsc8.jpg) - UtsuruK
  
 -  [**Hestia**](https://i.imgur.com/5hKzKJr.png) - RestlessRoman
+
+      -  [**2**](https://i.imgur.com/LD5js5A.jpeg) - Ryzer28
 
 -  [**Hilda (3H)**](https://i.imgur.com/rTNlEko.png) - ptolemy77
 
@@ -8933,7 +8949,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**19**](http://imgur.com/gallery/kBsnGGU) - Drapsag
 
-      -  [**20**](https://i.imgur.com/zc9iSyb.png) - Navaldeus
+      -  [**20**](https://i.imgur.com/SQxO1t3.png) - Navaldeus
 
       -  [**21**](https://imgur.com/vCtpTD8) - Totsutei
 
@@ -9235,6 +9251,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/DyluCL9.png) - Pyrozendot
  
       -  [**3**](https://i.imgur.com/7WWg5cS.jpeg) - Totsutei
+ 
+      -  [**4**](https://i.imgur.com/Yvpfqfl.png) - Navaldeus
 
 -  [**Larcei**](https://i.imgur.com/59y4FFO.jpg) - TheKboos
 
@@ -10898,7 +10916,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**9**](https://i.imgur.com/u5EwG38.jpg) - A_Splash_of_Citrus
 
-      -  [**10**](https://cdn.discordapp.com/attachments/702009335542448128/1070568646247727146/Screenshot_20230202-155446.jpg) - Ryzer28
+      -  [**10**](https://i.imgur.com/8DBxeJh.jpeg) - Ryzer28
 
       -  [**11**](https://i.imgur.com/MpjzDnG.jpg) - FullFrontalAnal
 
@@ -11047,6 +11065,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/DZV2ZlX.jpeg) - Yahgotall
  
       -  [**3**](https://preview.redd.it/7pwkmkd4x6be1.jpeg?width=1080&format=pjpg&auto=webp&s=39436c9cf6cc65e0f6926aeba2380e877934eec2) - useless_idiot_man
+ 
+      -  [**4**](https://i.imgur.com/O8u0fvv.jpeg) - Ryzer28
 
 -  [**Marth**](https://i.imgur.com/MZYohfu.jpg) - JiggaJazz
 
@@ -12314,7 +12334,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**22**](https://i.imgur.com/Vz6LCpG.png) - AJRayquaza
  
-      -  [**23**](https://cdn.discordapp.com/attachments/702009335542448128/1206883887335342080/Screenshot_20240213-194444.jpg?ex=65dda135&is=65cb2c35&hm=ee38c5d40adb589ceb26eee30b15fd90368d35a9c0577e58c301fc81ae856350&) - Ryzer28
+      -  [**23**](https://i.imgur.com/aAGVlVi.jpeg) - Ryzer28
 
 -  [**Naesala (Pirate)**](https://i.imgur.com/1rd8AZu.jpg)  - Lathel
 
@@ -12961,6 +12981,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/5h1afn2.png) - WhalesOnStrike
  
 -  [**Noire (Ninja)**](https://i.imgur.com/pEj2Rjp.jpeg) - Ryzer28
+
+      -  [**2**](https://i.imgur.com/GqjEvYi.jpeg) - Sprocket3
 
 -  [**Norne**](https://i.imgur.com/PCBsbre.jpg) - ShiningSolarSword
 
@@ -14571,6 +14593,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://cdn.discordapp.com/attachments/379031683632070657/404540591821815808/Screenshot_2018-01-21-01-38-58.png) - MarcoVento
  
 -  [**Rhea**](https://i.imgur.com/3kU0bey.jpg) - RestlessRoman
+
+      -  [**2**](https://preview.redd.it/tiztw111kfbe1.jpeg?width=1179&format=pjpg&auto=webp&s=4188c62b83d6eba7993e77365abae74cca41a1dd) - PartyTimePauline
 
 -  [**Rhea (Halloween)**](https://cdn.discordapp.com/attachments/869718852878098482/895707703589101618/image0.png) - Red_Demons_Dragon
 
@@ -18409,6 +18433,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/gCUdBIN.jpg) - RestlessRoman
  
       -  [**6**](https://imgur.com/3xTfquC) - jlaweez
+ 
+      -  [**7**](https://i.imgur.com/PwCDs3T.jpeg) - Ryzer28
 
 -  [**Ursula (Khadein)**](https://i.imgur.com/wiOJ6kX.jpg) - RestlessRoman
 
@@ -18876,7 +18902,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/Fsp9aX5.jpeg) - JdiJwa
  
--  [**Zephia**](https://cdn.discordapp.com/attachments/702009335542448128/1149853458019655770/Screenshot_20230909-094653.jpg) - Ryzer28
+-  [**Zephia**](https://i.imgur.com/jUOEjnc.jpeg) - Ryzer28
 
      -  [**2**](https://i.imgur.com/tSKgSeG.png) - Navaldeus
  
