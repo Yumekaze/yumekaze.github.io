@@ -3111,6 +3111,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**11**](https://i.imgur.com/cvteeEk.jpg) - Caty409
  
+      -  [**12**](https://preview.redd.it/zy6u4z4qf8me1.jpeg?width=1079&format=pjpg&auto=webp&s=4af45ae629b7009fb7efe8b32d1131214ebe6aed) - thatendyperson
+ 
 -  [**Clanne (Summer)**](https://i.imgur.com/s7pMyu0.jpeg) - Mogekov
 
 -  [**Clarisse**](https://i.imgur.com/JvnyMlL.jpg) - Blizzardthree
@@ -3476,6 +3478,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://cdn.discordapp.com/attachments/878104709574041650/1110743735672774766/IMG_5529.png) - ItsBeyondMe
  
       -  [**3**](https://i.imgur.com/Angge96.png) - Jagoslaw
+ 
+      -  [**4**](https://preview.redd.it/td0yolupxjme1.jpeg?width=1080&format=pjpg&auto=webp&s=a067c684a9d2a1e3dc4f057fc00e20ca83c2a1d6) - ChikaSenpai
 
 -  [**Cormag**](https://i.imgur.com/pdeq8tc.jpeg) - Ryzer28
 
@@ -5422,6 +5426,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/nGuXc90.png) - Caelholdt
  
       -  [**3**](https://i.imgur.com/mj7DEr0.jpg) - Lemurhart
+ 
+-  [**Embla (Bridal)**](https://preview.redd.it/9wmh71e4j8me1.jpeg?width=1080&format=pjpg&auto=webp&s=b1177d296fde63a609991e2fb88b967c0070b360) - ChikaSenpai
 
 -  [**Emmeryn**](https://i.imgur.com/yl30iaR.png) - PagePyralis
 
@@ -9897,6 +9903,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**68**](https://i.imgur.com/nwv6ze8.png) - RoseCelebi
  
       -  [**69**](https://i.imgur.com/YzT51do.jpg) - Asmont
+ 
+      -  [**70**](https://preview.redd.it/99amg5ird8me1.jpeg?width=1079&format=pjpg&auto=webp&s=c5849ba761c4d028f02f158be90a45e01ed6e02d) - thatendyperson
 
 -  [**Lilina (Love Abounds)**](https://i.imgur.com/9JgChZ4.jpg) - ajg0214
 
@@ -15191,10 +15199,14 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**2**](https://i.imgur.com/JTuJiRT.jpg) - SoupcanSam
  
      -  [**3**](https://i.imgur.com/VJO1SpD.jpg) - RestlessRoman
+ 
+     -  [**4**](https://preview.redd.it/cvt6n7tkh8me1.png?width=1125&format=png&auto=webp&s=59f9a0b55fb0e7521bc3669f6426e0e90fbfb042) - ghostlurktm
 
 -  [**Robin (M) (Brave)**](https://i.imgur.com/aN05xti.png) - ShadowMario3
 
      -  [**2**](https://i.imgur.com/vyB6jro.png) - RoseCelebi
+ 
+     -  [**3**](https://preview.redd.it/vn4q4amhg8me1.png?width=1125&format=png&auto=webp&s=a74f0aed4f58b62a3acf0c5673de347ab04dc37a) - ghostlurktm
  
 -  [**Robin (M) (Young)**](https://i.imgur.com/ixLbk9z.png) - ShadowMario3
 
@@ -16899,6 +16911,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/KwEOiYL.jpg) - RestlessRoman
  
       -  [**11**](https://i.imgur.com/42XuwXU.jpeg) - PhoenixPlot
+ 
+-  [**Sonya + Tharja (Spring)**](https://preview.redd.it/70ykrd32j8me1.jpeg?width=1080&format=pjpg&auto=webp&s=dd64a24ea02361655306e7e3cab8818add449036) - ChikaSenpai
 
 -  [**Sophia**](https://i.imgur.com/o9YeU5Q.jpg) - Kregar123	
 
@@ -16965,6 +16979,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**32**](https://i.imgur.com/WrYgw1j.png) - Patchoru
 
       -  [**33**](https://i.imgur.com/CCS2yDh.png) - nostradonist
+ 
+      -  [**34**](https://preview.redd.it/a95ue3gue8me1.jpeg?width=1078&format=pjpg&auto=webp&s=c008489ee0f509260e8ce0b63d3620832a652695) - thatendyperson
 
 -  [**Sophia (Halloween)**](https://i.imgur.com/hMtDYz9.jpg) - BreakfastMint
 
@@ -18975,6 +18991,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Yuliya**](https://i.imgur.com/3FUPlXl.jpg) - Totsutei
 
       -  [**2**](https://i.imgur.com/drhwX9d.jpeg) - SupremeShio
+ 
+-  [**Yunaka (Winter)**](https://preview.redd.it/wojy8s13j8me1.jpeg?width=1080&format=pjpg&auto=webp&s=2fa941f08b0447d57e73bc74208a5f3fe83a03b6) - ChikaSenpai
 
 -  [**Yune**](https://i.imgur.com/tWf1A1Y.jpg) - YorozuyaTrio
 
