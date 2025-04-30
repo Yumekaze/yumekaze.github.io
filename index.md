@@ -185,6 +185,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
      -  [**6**](https://i.imgur.com/kdO4gYj.png) - BlazeBloom
  
+     -  [**7**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-fitxqd5kr8me1.jpeg?width=640&crop=smart&auto=webp&s=f471f591f1c002b6a7cf7d67c8d29342ac2b9855) - Zekrom-9
+ 
 -  [**Alm (Attuned)**](https://i.imgur.com/kxefDS5.png) - BlazeBloom
 
 -  [**Altena**](https://i.imgur.com/VMiX8Wl.jpg) - AgentEris
@@ -583,7 +585,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Asbel**](https://i.imgur.com/dDv1f5l.jpg) - ReclusiveBoatGuy
 
-      -  [**2**](https://i.imgur.com/tOzD98m.jpg) - Totsutei
+      -  [**2**](https://imgur.com/zylN8Yf) - Totsutei
 
 -  [**Ash**](https://i.imgur.com/0Q61VUk.jpg) - lilyemil
 
@@ -1058,6 +1060,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/WNEKKkg.jpg) - Ringanel
  
       -  [**12**](https://preview.redd.it/iroj3vbvz7me1.jpeg?width=750&format=pjpg&auto=webp&s=c17a7d1bba17f4b3d08f1dab1968a3b7a4e1c1bf) - lyteupthelyfe
+ 
+      -  [**13**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-dt7aotra89me1.jpeg?width=640&crop=smart&auto=webp&s=6e14ec085cb58b1e1427a8499f2b565cde09012f) - bylitzaluv
 
 -  [**Bantu**](https://i.imgur.com/HIRAml9.jpg) - Rabbytt
 
@@ -4004,6 +4008,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/69OaacQ.png) - Phenollam
 
       -  [**12**](https://i.imgur.com/4jUvqa8.jpg) - Starspeedrunner
+ 
+      -  [**13**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-tq8xgle989me1.jpeg?width=640&crop=smart&auto=webp&s=eadc6db1846c7334f9560bee6b202e48891b6c9a) - bylitzaluv
 
 -  [**Dedue**](https://i.imgur.com/8OiST4e.png) - MeraMera27
 
@@ -5847,7 +5853,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**4**](https://i.imgur.com/iZUGsKp.jpg) - JoltyEon
 
-      -  [**5**](https://i.imgur.com/oDZbypL.jpeg) - Totsutei
+      -  [**5**](https://imgur.com/l7opjko) - Totsutei
  
       -  [**6**](https://i.imgur.com/gqBsxBB.jpg) - Regi_edgy_lord
 
@@ -6750,6 +6756,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Greil (Greil's Devoted)**](https://cdn.discordapp.com/attachments/548002260643479567/551137108778024992/Screenshot_2019-03-02-07-18-26.png) - minatoapologist
 
       -  [**2**](https://i.imgur.com/at0kgxd.jpg) - Aessir
+ 
+      -  [**3**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-lwue0xb2n8me1.jpeg?width=640&crop=smart&auto=webp&s=701eb77c821913824d4d7bb180c753dde8db413a) - Asmont
 
 -  [**Guinivere**](https://i.imgur.com/KEKPE8x.jpg) - Camping_Noob
 
@@ -7054,6 +7062,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Hapi**](https://i.imgur.com/TicUItV.jpg) - ShadowMLuigi
 
       -  [**2**](https://i.imgur.com/e7ZbywL.jpg) - DucklingCore
+ 
+      -  [**3**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-1c1igffwf9me1.jpeg?width=640&crop=smart&auto=webp&s=f8922b8089dd973e9667b7d05fff62b9ca86d5db) - Join_Quotev_296
 
 -  [**Hardin (Fallen Hero)**](https://i.imgur.com/rQSCxky.png) - Teh2chao2
 
@@ -7320,6 +7330,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Hestia**](https://i.imgur.com/5hKzKJr.png) - RestlessRoman
 
       -  [**2**](https://i.imgur.com/LD5js5A.jpeg) - Ryzer28
+ 
+      -  [**3**](https://fyll-nds.bitbucket.io/misc/feh_buildcomp_hestia.png) - Fyll-nds
 
 -  [**Hilda (3H)**](https://i.imgur.com/rTNlEko.png) - ptolemy77
 
@@ -7488,6 +7500,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/PVCpgPx.png) - seastarcrossing
 
       -  [**7**](https://i.imgur.com/e9hBrpQ.jpg) - symmphonic
+ 
+      -  [**8**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-blz9o27jm8me1.jpeg?width=640&crop=smart&auto=webp&s=6a35c3d59605b187399ea0e267e5047fe9684f10) - Physical-Fix6249
 
 -  [**Hrid (New Year's)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
 
@@ -7577,7 +7591,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Igrene (Ninja)**](https://i.imgur.com/JquP2qQ.jpeg) - JdiJwa
 
-      -  [**2**](https://i.imgur.com/56iMuJG.jpg) - Totsutei
+      -  [**2**](https://imgur.com/iJ2vwBg) - Totsutei
 
       -  [**3**](https://i.imgur.com/RUabpNK.jpg) - RestlessRoman
 
@@ -8299,7 +8313,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       
       -  [**11**](https://i.imgur.com/sLWZvPE.jpg) - Alice_A_C8
       
-      -  [**12**](https://i.imgur.com/ENY5rWu.jpg) - Totsutei
+      -  [**12**](https://imgur.com/7pSmtGo) - Totsutei
       
       -  [**13**](https://i.imgur.com/RqBbHKI.jpg) - FullFrontalAnal
 
@@ -10442,6 +10456,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**4**](https://i.imgur.com/iFMHECw.jpg) - UnbindA11
  
+      -  [**5**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-4u7v2r6ub9me1.jpeg?width=640&crop=smart&auto=webp&s=4bc1f19a6ad9181d0e2199c81b6dd894e7a1a5da) - flying-rat-73
+ 
 -  [**Ludveck**](https://i.imgur.com/fyyi3RJ.jpeg) - Ybernando
 
 -  [**Lugh**](https://i.imgur.com/YYnzWX2.jpg) - JdiJwa
@@ -10980,6 +10996,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Malice**](https://i.imgur.com/rkwdjDr.jpg) - RestlessRoman
 
+      -  [**2**](https://fyll-nds.bitbucket.io/misc/feh_buildcomp_malice.png) - Fyll-nds
+
+-  [**Malice (Desert)**](https://fyll-nds.bitbucket.io/misc/feh_buildcomp_malice_desert.png) - Fyll-nds
+
 -  [**Mamori**](https://i.imgur.com/lTl3yYF.jpg) - JdiJwa
 
 -  [**Manuela (Winter)**](https://cdn.discordapp.com/attachments/869718852878098482/920947648326950953/Screenshot_20211216-085647_08ec35600c34dc2fc5d3c148e5878b88.jpg) - AbyssiHu
@@ -11145,6 +11165,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Marisa (Spring)**](https://i.imgur.com/DRvJGTf.png) - Thrasir37
 
       -  [**2**](https://i.imgur.com/Cr87mP4.png) - JumpSlashShoot
+ 
+-  [**Marla**](https://fyll-nds.bitbucket.io/misc/feh_buildcomp_marla.png) - Fyll-nds
  
 -  [**Marni**](https://i.imgur.com/VaRwkoV.png) - Mogekov
 
@@ -15445,6 +15467,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/6CKplnb.jpg) - ArmyTurtles
  
       -  [**4**](https://i.imgur.com/7OowP2S.jpeg) - JdiJwa
+ 
+      -  [**5**](https://imgur.com/9LnrPyu) - Totsutei
 
 -  [**Rudolf**](https://i.imgur.com/EolLyAk.jpg) - unaegis
 
@@ -17615,6 +17639,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**9**](https://i.imgur.com/cmEVjRJ.png) - robomaid
 
       -  [**10**](https://i.ibb.co/wgxc19X/Screenshot-20221101-010158-Fire-Emblem-Heroes.jpg) - Yoshieatsyourpie
+ 
+      -  [**11**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-cnj8hm9za9me1.png?width=640&crop=smart&auto=webp&s=43b5157934e0d28f1e22f8e8b12f82f653aaadd9) - Lyulein
 
 -  [**Takumi (Summer)**](https://i.imgur.com/0LQuC7B.jpg) - Dare_Rio
 
@@ -18580,6 +18606,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Vaida**](https://i.imgur.com/JmNuihg.jpeg) - Sprocket3
 
+      - [**2**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-march-2025-v0-fo4vaes889me1.png?width=320&crop=smart&auto=webp&s=38572a9878b355ec0375c6e26f2d5315804ade39) - jlaweez
+
 -  [**Valbar**](https://i.imgur.com/OapvGnc.jpg) - MetaTriforce
 
       -  [**2**](https://i.imgur.com/6Os76Za.png) - X-pert74
@@ -18839,6 +18867,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/kwA2Icx.png) - Gamer178
 
       -  [**3**](https://i.imgur.com/Lc239PG.png) - NLiLox
+ 
+      -  [**4**](https://imgur.com/wYKFA18) - Totsutei
 
 -  [**Wrys**](https://i.imgur.com/EwpRKbl.png) - athropods 
 
