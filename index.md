@@ -7555,7 +7555,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/dVx51xf.jpg) - wat-dha-fak
 
-      -  [**6**](https://preview.redd.it/ytxghtcrcnze1.png?width=1620&format=png&auto=webp&s=8b5905b951fca722415699a2cadae35152a78723) - seastarcrossing
+      -  [**6**](https://imgur.com/a/iTARt41) - seastarcrossing
 
       -  [**7**](https://i.imgur.com/e9hBrpQ.jpg) - symmphonic
  
@@ -7563,7 +7563,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Hrid (New Year's)**](https://i.imgur.com/M6XLeUw.jpg) - iamdarthyoshi
 
-      -  [**2**](https://preview.redd.it/3gd65s3gdnze1.png?width=1620&format=png&auto=webp&s=560a4fe0be5162fac8f402a54fea7e04f9a34b59) - seastarcrossing
+      -  [**2**](https://preview.redd.it/elp33hwj8t3f1.png?width=1620&format=png&auto=webp&s=90a3b61fa346ae9c11f0f1fba7dcedc3e7d650b7) - seastarcrossing
  
 -  [**Hrid (Summer)**](https://preview.redd.it/c3zb30didnze1.png?width=1620&format=png&auto=webp&s=504452167cbc12e40ff6fbdbbfadda0609a3437a) - seastarcrossing
 
@@ -8221,7 +8221,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**22**](https://i.imgur.com/RPHXayn.png) - mindthetimes
  
-      -  [**23**](https://preview.redd.it/wa40yhfzy7be1.jpeg?width=1170&format=pjpg&auto=webp&s=4cc2ba727c03dac1cb11f0bdb8bc112c8a5ed847) - actredal
+      -  [**23**](https://preview.redd.it/p4a2dlg22e5f1.jpeg?width=1170&format=pjpg&auto=webp&s=4c21ad0aed43510022f53d23113889ae6de715e9) - actredal
 
 -  [**Jeralt**](https://i.imgur.com/BDy03Bf.jpeg) - PunkRockCapitalist
 
@@ -11263,6 +11263,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/LVjPvnW.jpeg) - Nazh2206
  
       -  [**7**](https://i.imgur.com/f18OpYL.jpeg) - SolokOriginel
+ 
+      -  [**8**](https://i.imgur.com/dRU0gdj.jpeg) - seastarcrossing
 
 -  [**Marth**](https://i.imgur.com/MZYohfu.jpg) - JiggaJazz
 
@@ -11703,6 +11705,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/jaQUkCG.png) - TinyTiger1234
  
       -  [**4**](https://i.imgur.com/AL5KZAp.png) - _vinventure
+ 
+      -  [**5**](https://i.imgur.com/J0QHOcb.jpeg) - seastarcrossing
 
 -  [**Medeus**](https://i.imgur.com/OgUiQA2.jpg) - Slurpuffilicious
 
@@ -18038,7 +18042,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**43**](https://preview.redd.it/43b7b75ak0s81.jpg?width=1012&format=pjpg&auto=webp&s=5ace573d1e4dc60802e48c6961560b79f5741ffe) - somerandom421
 
-      -  [**44**](https://i.imgur.com/4jkQxH1.png) - seastarcrossing
+      -  [**44**](https://i.imgur.com/ABsaMTa.jpeg) - seastarcrossing
  
       -  [**45**](https://i.imgur.com/8mCCLCE.jpeg) - Tery_
  
@@ -18056,7 +18060,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/lsMA9nY.png) - Caldwell-luc
 
-      -  [**6**](https://i.imgur.com/v3qQkBv.png) - seastarcrossing
+      -  [**6**](https://i.imgur.com/UWwYgki.png) - seastarcrossing
 
 -  [**Tharja (Bridal)**](https://i.imgur.com/jelBEmu.jpg) - october_5
 
@@ -18068,7 +18072,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**5**](https://i.imgur.com/LpaJ11t.jpg) - RestlessRoman
 
-      -  [**6**](https://i.imgur.com/tLAqiKe.png) - seastarcrossing
+      -  [**6**](https://i.imgur.com/524MoI8.jpeg) - seastarcrossing
  
       -  [**7**](https://i.imgur.com/00gPblL.png) - kris12k4
 
@@ -18076,7 +18080,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://preview.redd.it/u9y03ii8wjse1.png?width=1620&format=png&auto=webp&s=de73998e63e180e36f02b1c4ce585caf019140e0) - seastarcrossing
 
--  [**Tharja (Summer)**](https://i.imgur.com/NF1qrH9.jpg) - seastarcrossing
+-  [**Tharja (Summer)**](https://i.imgur.com/MaSIeST.jpeg) - seastarcrossing
 
       -  [**2**](https://i.imgur.com/bUCsOsg.jpg) - RestlessRoman
  
@@ -19211,6 +19215,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**8**](https://imgur.com/a/7oCjMJU) - yatub21
  
      -  [**9**](https://i.imgur.com/ma93Wsr.jpeg) - jlaweez
+ 
+     -  [**10**](https://i.imgur.com/UQ3p1kh.jpeg) - seastarcrossing
 
 -  [**Zephiel**](https://i.imgur.com/PV5PSmr.png) - Pizzatruck
 
