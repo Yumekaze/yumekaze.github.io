@@ -2186,6 +2186,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/5kpgDrE.png) - BlazeBloom
  
       -  [**4**](https://i.imgur.com/nQ2o0L0.jpeg) - Ryzer28
+ 
+      -  [**5**](https://preview.redd.it/nmiio6zuko5f1.jpeg?width=1080&format=pjpg&auto=webp&s=0dbc6e5b0cced24b411981f3971bff5adf513806) - Sancnea
 
 -  [**Camus**](https://i.imgur.com/Ulhovqi.jpg) - InfiniteLoop0
 
@@ -2224,6 +2226,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/ufjOvR2.jpg) - dukeaegir
  
 -  [**Candace**](https://i.imgur.com/sYsklFw.jpg) - ProfTurquoise
+
+-  [**Caspar**](https://preview.redd.it/u7fs0k7kjn5f1.png?width=1080&format=png&auto=webp&s=9b565f302a6b32d2272b07081cc9c1c053eccd23) - No-Cry3031
 
 -  [**Caspar (Summer)**](https://cdn.discordapp.com/attachments/713790993849385002/856512457610887179/Screenshot_20210621_203422.jpg) - ukantor
 
@@ -3943,7 +3947,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Corrin (M) (Legendary)**](https://preview.redd.it/ik0t1jzj9lze1.jpeg?width=828&format=pjpg&auto=webp&s=c11ea2e9c7cc5bfff2b2229f82af1e5e6a5c41b9) - Starf_all
 
--  [**Corrin (M) + Corrin (F) (Young)**](https://preview.redd.it/0ujvpegl9lze1.jpeg?width=828&format=pjpg&auto=webp&s=b6146808723d4ffb80fac024776711428aa95176) - Starf_all
+-  [**Corrin (M) + Corrin (F) (Young)**](https://preview.redd.it/8y4pky1eqn5f1.jpeg?width=828&format=pjpg&auto=webp&s=8f11cf1b2a76a843fec45d11a0ede961bb76b6ee) - Starf_all
 
 -  [**Cynthia**](https://media.discordapp.net/attachments/398619600603971594/625833266426937364/image0.png) - PokemonCrazy
 
@@ -4374,6 +4378,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://preview.redd.it/rs2elmw8e7me1.jpeg?width=828&format=pjpg&auto=webp&s=a14cf2be3fbf84451e4777e33071eb2ab3df4677) - Rmb6707
  
       -  [**3**](https://preview.redd.it/taw9q87rp7me1.jpeg?width=1080&format=pjpg&auto=webp&s=6792587f0de90613f72a004c8e344ee488a94fa3) - courses90
+ 
+      -  [**4**](https://imgur.com/gallery/feh-10-l5nXhF7#N0LjFYh) - sephiroth682000
 
 -  [**Dorothea (Summer)**](https://i.redd.it/y4xr9gxpvkb71.jpg) - Wingcapx
 
@@ -5614,6 +5620,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**8**](https://i.imgur.com/DHnaroO.jpg) - TiltControls
 
       -  [**9**](https://i.imgur.com/yHXJk8m.png) - Ozkrd
+ 
+      -  [**10**](https://imgur.com/gallery/feh-10-l5nXhF7#Lirz8LI) - sephiroth682000
 
 -  [**Est**](https://i.imgur.com/jKlKyS6.png) - Doesnty
 
@@ -6454,6 +6462,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Fomortiis (Winter)**](https://preview.redd.it/bd9xcksbb8me1.png?width=1440&format=png&auto=webp&s=6978c8a99c971361d4238e60930d7767e5c5e2a6) - torkoal_lover
 
       -  [**2**](https://i.postimg.cc/Q8PQFz39/fomo-plus-10.jpg) - go4ino
+ 
+      -  [**3**](https://imgur.com/gallery/feh-10-l5nXhF7#j9YfvQm) - sephiroth682000
 
 -  [**Forrest**](https://i.redd.it/k8ykb2ns1pr41.jpg) - NohrianScumbag
 
@@ -7834,6 +7844,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://cdn.discordapp.com/attachments/702009335542448128/1210745600912662588/IMG_7696.jpg?ex=65ebadb5&is=65d938b5&hm=510923faae4d1f09044965ac9af568303ae80efae9060ab50e1f40e4f357fd65&) - LordIkeVegeta
  
 -  [**Ike (Emblem)**](https://preview.redd.it/1a88wmba84be1.png?width=1077&format=pjpg&auto=webp&s=e84631879887f22c13326f31d33f10fb17e06aad) - davidrolandssr
+
+     -  [**2**](https://preview.redd.it/hwl69xa8vo5f1.jpeg?width=1170&format=pjpg&auto=webp&s=ea48fc3accc79e6fd37da6c7e5eba22b50615470) - I-Am-Nito
       
 -  [**Ilyana**](https://i.imgur.com/sE2h7Pi.jpg) - CptnHandsome
 
@@ -10487,6 +10499,10 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/GtJD6ok.jpeg) - go4ino
  
       -  [**4**](https://i.imgur.com/LPgiNdg.jpeg) - Sprocket3
+ 
+-  [**Lucina (Rearmed)**](https://i.imgur.com/BQbvfiB.jpeg) - trucidee
+ 
+-  [**Lucina + Chrom (Ninja)**](https://i.imgur.com/h7Aaa3P.jpeg) - trucidee
 
 -  [**Lucius**](https://i.imgur.com/mQ5FQZR.jpg) - Gulassa 
 
@@ -11958,7 +11974,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**3**](https://imgur.com/a/JjdpqW0) - keyver-C
 
-      -  [**4**](https://cdn.discordapp.com/attachments/757814526782603300/981997043004354700/IMG_3897.png) - Fatalis_Mien
+      -  [**4**](https://preview.redd.it/whk6tkkhkn5f1.jpeg?width=1179&format=pjpg&auto=webp&s=3047e59f4bace8a673155d0a3407cae23342c6b4) - Fatalis_Mien
 
       -  [**5**](https://i.imgur.com/Sh3bxFT.jpg) - FordFB67
 
@@ -12803,6 +12819,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Nidhoggr**](https://imgur.com/a/ERDVviN) - HeavenlySeraph
 
      -  [**2**](https://i.imgur.com/CeOrcze.jpeg) - SolokOriginel
+ 
+     -  [**3**](https://imgur.com/gallery/feh-10-l5nXhF7#GzTVA7l) - sephiroth682000
 
 -  [**Nifl (Summer)**](https://i.redd.it/49wizhxpoef91.jpg) - Denkou331
 
@@ -15603,6 +15621,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/POByO70.png) - Navaldeus
 
       -  [**14**](https://i.imgur.com/6NyagZq.png) - Pit_Solitayrh
+ 
+      -  [**15**](https://preview.redd.it/ab3d1eyrxo5f1.jpeg?width=1170&format=pjpg&auto=webp&s=f891668e5b9e7e9277a43fc194eb1bad11075479) - corkyyyyy
 
 -  [**Ryoma**](https://i.imgur.com/gGWVF3r.png) - exxit5408
 
@@ -16413,6 +16433,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/SQY4E2G.png) - nyxduplex
       
       -  [**4**](https://i.imgur.com/jBPdwdu.jpg) - LustrousDreams
+ 
+-  [**Sharena + Veronica (Bridal)**](https://imgur.com/gallery/feh-10-l5nXhF7#uiQAFMD) - sephiroth682000
 		
 -  [**Sheena**](https://i.imgur.com/rWBT9Fs.png) - equiNine
 
@@ -17043,6 +17065,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**11**](https://i.imgur.com/42XuwXU.jpeg) - PhoenixPlot
  
 -  [**Sonya + Tharja (Spring)**](https://preview.redd.it/70ykrd32j8me1.jpeg?width=1080&format=pjpg&auto=webp&s=dd64a24ea02361655306e7e3cab8818add449036) - ChikaSenpai
+
+-  [**Sonya (Rearmed)**](https://preview.redd.it/8ilkb4f3wo5f1.jpeg?width=1170&format=pjpg&auto=webp&s=3ffa5ac0696c7ed3e921ad3ceae14559c576f796) - corkyyyyy
 
 -  [**Sophia**](https://i.imgur.com/o9YeU5Q.jpg) - Kregar123	
 
@@ -18635,6 +18659,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**47**](https://i.imgur.com/bhcQaYR.jpg) - TiltControls
 
       -  [**48**](https://i.imgur.com/DMtZtyo.jpeg) - Tery_
+ 
+      -  [**49**](https://imgur.com/gallery/feh-10-l5nXhF7#coVfESf) - sephiroth682000
 
 -  [**Titania (Greil's Devoted)**](https://i.imgur.com/GaZjSHy.png) - icydragon0605
 
@@ -18714,9 +18740,11 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Ursula (Khadein)**](https://i.imgur.com/wiOJ6kX.jpg) - RestlessRoman
 
--  [**Ursula (Summer)**](https://i.imgur.com/ITyI88E.png) - corkyyyyy
+-  [**Ursula (Summer)**](https://preview.redd.it/whrb4huoxo5f1.jpeg?width=1170&format=pjpg&auto=webp&s=11b45784597b9e698789f68f93bf957f51cdee9d) - corkyyyyy
 
 -  [**Uther**](https://i.imgur.com/8iMU0pw.png) - Aetherryn
+
+     -  [**2**](https://i.imgur.com/mDcymTi.png) - sephiroth682000
 
 -  [**Vaida**](https://i.imgur.com/JmNuihg.jpeg) - Sprocket3
 
@@ -19145,6 +19173,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Yunaka (Winter)**](https://preview.redd.it/wojy8s13j8me1.jpeg?width=1080&format=pjpg&auto=webp&s=2fa941f08b0447d57e73bc74208a5f3fe83a03b6) - ChikaSenpai
 
 -  [**Yunaka (Aided)**](https://i.imgur.com/MGeWS2b.jpeg) - Nazh2206
+
+      -  [**2**](https://preview.redd.it/1bwj2rqtln5f1.jpeg?width=1179&format=pjpg&auto=webp&s=e75f7c7a1c84c61319b5930e3f8d1505a7a58b45) - Fatalis_Mien
 
 -  [**Yune**](https://i.imgur.com/tWf1A1Y.jpg) - YorozuyaTrio
 
