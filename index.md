@@ -50,6 +50,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/IfWQZPo.jpeg) - FellMarie
  
       -  [**3**](https://i.imgur.com/Ddm1DQq.jpeg) - SupremeShio
+ 
+      -  [**4**](https://preview.redd.it/6365ninbfp5f1.jpeg?width=1080&format=pjpg&auto=webp&s=1d27fd320c4e4d5e3c35371dbadf832ebb517521) - Philnopo
 
 -  [**Alear (F) (Legendary)**](https://i.imgur.com/rZArdwl.png) - BlazeBloom
 
@@ -14089,6 +14091,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/f8i1r18.jpg) - duchessa13
  
       -  [**5**](https://i.imgur.com/QbOdMec.png) - BlazeBloom
+ 
+      -  [**6**](https://preview.redd.it/4071nujzlp5f1.png?width=1440&format=png&auto=webp&s=1dbfc612959a91bd77da7fabb0b10537dd96e7ac) - SonicSpeed0919
 
 -  [**Panne**](https://i.imgur.com/dRFTUBV.png) - HystericalTrend
 
@@ -14141,6 +14145,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**5**](https://i.imgur.com/9mQglJf.jpg) - SuddenJami
 
       -  [**6**](https://i.imgur.com/fKuTeEW.jpg) - Caty409
+ 
+      -  [**7**](https://preview.redd.it/iiabmyyjzp5f1.jpeg?width=1079&format=pjpg&auto=webp&s=d4a4d3fc6f09446dafa7b9415d9e6da099695911) - LeadCafe
 
 -  [**Pent**](https://i.imgur.com/O7YVeYb.png) - Aetherryn
 
@@ -14213,6 +14219,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
      -  [**2**](https://i.imgur.com/z80gzOl.png) - DarkSlayer415
  
      -  [**3**](https://i.imgur.com/8969Csl.png) - Ashcethesubtle
+ 
+     -  [**4**](https://preview.redd.it/qtmhtejxep5f1.jpeg?width=1080&format=pjpg&auto=webp&s=55467427c832f2bf38854658558ebe935983433a) - Philnopo
       
 -  [**Petra**](https://i.imgur.com/CcuDvs4.png) - mewtwoniteX
 
@@ -17917,6 +17925,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Tana (New Year's)**](https://i.imgur.com/dgsoZTh.jpeg) - Random546
 
       -  [**2**](https://i.imgur.com/L1yGOIW.jpeg) - SkyWanderer
+ 
+      -  [**3**](https://preview.redd.it/32hsx9y8dp5f1.jpeg?width=1080&format=pjpg&auto=webp&s=bd60fd802707a5e439131910862b78b4753efb69) - Philnopo
 
 -  [**Tanith**](https://i.imgur.com/CyGEqMl.png) - MajorasKatana
 
