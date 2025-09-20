@@ -7064,6 +7064,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**18**](https://i.imgur.com/ez4Fecy.png) - _vinventure
  
       -  [**19**](https://i.imgur.com/EHL7tf5.jpeg) - Ryzer28
+ 
+      -  [**20**](https://preview.redd.it/jv018b1nxaqf1.jpeg?width=1284&format=pjpg&auto=webp&s=44eb2b66f64f92a52dfdcce7f6a0068cbb9a4655) - magiciseverything13
 
 -  [**Haar (Ninja)**](https://i.imgur.com/D2X1T1f.jpg) - Robby_luigi
 
@@ -11319,6 +11321,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/3QG9W2H.png) - L0RDR0B
       
       -  [**3**](https://i.imgur.com/t0yUvr3.jpeg) - selhelm
+ 
+      -  [**4**](https://preview.redd.it/xtievr3zxaqf1.png?width=750&format=png&auto=webp&s=678036147033c653eb80c6b8ed4a7a4fab33e677) - Nansha1
 
 -  [**Marisa**](https://i.redd.it/ejl8gujbzqp21.png) - Kuraran
 
