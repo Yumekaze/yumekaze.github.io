@@ -1651,9 +1651,13 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**24**](https://i.imgur.com/2j2glqj.png) - G-N-S
  
--  [**Bruno (Winter)**](https://i.imgur.com/iocKC5f.jpg) - Apollo_Just_Ice
+-  [**Bruno**](https://preview.redd.it/3zr2uq5e63bg1.jpeg?width=1179&format=pjpg&auto=webp&s=fe105e9ee6cc74f4fbe1a6704397ebdd92855071) - Apollo_Just_Ice
+ 
+-  [**Bruno (Winter)**](https://preview.redd.it/gsm8ypi763bg1.jpeg?width=1179&format=pjpg&auto=webp&s=c27a4fddf1343100a01ebe8b615bceb26a7cd4f5) - Apollo_Just_Ice
 
       - [**2**](https://preview.redd.it/the-5-lv-40-10-build-compendium-submission-thread-january-v0-sa3o1k6p85be1.jpeg?width=750&format=pjpg&auto=webp&s=7332e8df4e928ba2a4cdbd6cc18575c914c154b4) - apple-juicebox
+ 
+-  [**Bruno (Spring)**](https://preview.redd.it/c89tpguc63bg1.jpeg?width=1179&format=pjpg&auto=webp&s=56c3e460cdadebcda6b622dea683b71a93b97d10) - Apollo_Just_Ice
 
 -  [**Byleth (F)**](https://i.imgur.com/kS7vxnJ.jpg) - cocacolafart
 
@@ -4313,7 +4317,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**23**](https://preview.redd.it/8y8johixm7me1.jpeg?width=1170&format=pjpg&auto=webp&s=6f9e977f4454af1f7a9862d776ca9b320f37c814) - crunk_buntley
  
-      -  [**24**](https://preview.redd.it/02qx2nh1ylbf1.jpeg?width=1170&format=pjpg&auto=webp&s=8ec1af93d16de9dc03b376e0a41cf5f85b2a253a) - actredal
+      -  [**24**](https://preview.redd.it/7l5zpi6b8pbg1.jpeg?width=1206&format=pjpg&auto=webp&s=ea082526d86c9b6d734556b025acf292b69e3d2c) - actredal
 
 -  [**Dimitri (Legendary)**](https://i.imgur.com/Lxmx8gV.jpg) - InfiniteLoop0
 
@@ -4470,6 +4474,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://preview.redd.it/h0yz9qxxf2bg1.jpeg?width=1080&format=pjpg&auto=webp&s=e09f64576ff0ba1afa8c84f90a80b6ffdb11843f) - courses90
  
       -  [**4**](https://imgur.com/gallery/feh-10-l5nXhF7#N0LjFYh) - sephiroth682000
+ 
+      -  [**5**](https://i.imgur.com/KHdD5w0.jpeg) - Tough_Cauliflower_46
 
 -  [**Dorothea (Summer)**](https://i.redd.it/y4xr9gxpvkb71.jpg) - Wingcapx
 
@@ -4626,6 +4632,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**26**](https://i.imgur.com/9EcDrQj.jpg) - GoldenYoshistar1
  
       -  [**27**](https://i.imgur.com/QL3lWs5.jpeg) - LyreConnoisseur
+ 
+      -  [**28**](https://preview.redd.it/wej74xdx03bg1.jpeg?width=1080&format=pjpg&auto=webp&s=0f5939001c87983d6d2ece81d2266c3712ff00cb) - ShapeForest
 
 -  [**Edelgard**](https://i.imgur.com/0khhA0W.jpg) - iamdarthyoshi
 
@@ -4883,7 +4891,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
      -  [**3**](https://i.imgur.com/QJwDQiA.jpeg) - Charged_Blade
  
-     -  [**4**](https://i.imgur.com/J3XFMQD.jpeg) - Tough_Cauliflower_46
+     -  [**4**](https://i.imgur.com/o3Wjax5.jpeg) - Tough_Cauliflower_46
  
      -  [**5**](https://i.imgur.com/8N25d8f.jpeg) - StormAurora
  
@@ -6585,6 +6593,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Fogado**](https://i.imgur.com/v0iva2d.jpg) - verdant-winds
 
+-  [**Fogado (Summer)**](https://i.imgur.com/llrdCSB.jpeg) - Tough_Cauliflower_46
+
 -  [**Fomortiis**](https://i.imgur.com/SK3OxvU.png) - Jagoslaw
 
       -  [**2**](https://i.imgur.com/5WaE9yp.png) - LordSturm777
@@ -7469,7 +7479,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
 -  [**Heidr**](https://i.imgur.com/qKhsI7E.jpeg) - TheSymbioticLunala
 
-      -  [**2**](https://preview.redd.it/43w6mkn0b4be1.jpeg?width=1179&format=pjpg&auto=webp&s=dad2b3850e60e9b60cbbc766db5a072fd6f8e833) - Apollo_Just_Ice
+      -  [**2**](https://preview.redd.it/v9k9gb0a63bg1.jpeg?width=1179&format=pjpg&auto=webp&s=252766ee5f604b3e5739dec9f5a5f6ff361dcdd5) - Apollo_Just_Ice
 
 -  [**Hel**](https://i.redd.it/h5w2vn5td0e51.png) - Joshuaxe7
 
@@ -8106,6 +8116,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/pVuunAi.png) - A_Splash_of_Citrus
 
       -  [**3**](https://i.imgur.com/XWPdHtg.jpg) - Jagoslaw
+ 
+      -  [**4**](https://preview.redd.it/h3ar2rqyrpdg1.png?width=892&format=png&auto=webp&s=09cbb35a58eede25b384502f8f80db2d1fa4a52e) - VannaEvans
       
 -  [**Ingrid (Summer)**](https://i.imgur.com/Svza3Tj.jpg) - Fusion_Fear
 
@@ -8452,6 +8464,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/n7oxW4H.png) - ShadowMLuigi
  
       -  [**11**](https://i.imgur.com/oum4o22.jpg) - DucklingCore
+ 
+-  [**Jesse**](https://preview.redd.it/miwgyxhsb3bg1.jpeg?width=1125&format=pjpg&auto=webp&s=fe11532b77de8311980638db6bbdae942e726895) - obnoxious_spaceman
       
 -  [**Jill**](https://i.imgur.com/QP88SvU.png) - AlbinosRideDinos
 
@@ -9060,6 +9074,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**22**](https://i.imgur.com/Il9XU40.jpg) - Phaaze13
  
       -  [**23**](https://i.imgur.com/YEZ7fPJ.png) - TheOldWestern
+ 
+      -  [**24**](https://preview.redd.it/7uzoy08m13bg1.jpeg?width=1080&format=pjpg&auto=webp&s=98a03ab27bef04cccf93db99386e570e35a6a8c5) - ShapeForest
 
 -  [**Kent**](https://i.imgur.com/nAPPIkd.jpeg) - JdiJwa
 
@@ -9818,7 +9834,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       - [**3**](https://i.imgur.com/hTPDwyT.jpeg) - PhoenixPlot
  
-      - [**4**](https://i.imgur.com/SbB73c5.jpeg) - Tough_Cauliflower_46
+      - [**4**](https://i.imgur.com/cVrgaqm.jpeg) - Tough_Cauliflower_46
 
 -  [**Leila**](https://i.imgur.com/JwhYgHd.png) - zoolan
 
@@ -11214,6 +11230,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Lyon + Eirika (Valentine's)**](https://i.imgur.com/2YKVW3a.png) - _vinventure
 
+      -  [**2**](https://preview.redd.it/vtadzt4h13bg1.jpeg?width=1080&format=pjpg&auto=webp&s=6006eb2e5c37824b5dbdbb1f0144c7dfd8481a98) - ShapeForest
+
 -  [**Lyre (New Year's)**](https://i.imgur.com/YhZzJSo.jpg) - Totsutei
 
       -  [**2**](https://i.imgur.com/dsQynAn.jpeg) - stephenthatfoste
@@ -11993,6 +12011,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**4**](https://i.imgur.com/AL5KZAp.png) - _vinventure
  
       -  [**5**](https://i.imgur.com/J0QHOcb.jpeg) - seastarcrossing
+ 
+      -  [**6**](https://preview.redd.it/oa9rml8h83bg1.png?width=1440&format=png&auto=webp&s=14ff757b322c9d044c8c1f7d26acd0d49f646928) - lightningbattleaxe
 
 -  [**Medeus**](https://i.imgur.com/OgUiQA2.jpg) - Slurpuffilicious
 
@@ -14344,6 +14364,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**6**](https://i.imgur.com/uke3iq3.png) - Important_Ad4176
  
+-  [**Palla (Summer)**](https://preview.redd.it/1knt41few2bg1.jpeg?width=1290&format=pjpg&auto=webp&s=44fa08d81555aa2c309c28097cedf6f1ef010907) - elyskye
+ 
 -  [**Pandreo**](https://i.imgur.com/lZMgKwD.png) - BlazeBloom
 
       -  [**2**](https://preview.redd.it/07j8lgo9waqf1.jpeg?width=1080&format=pjpg&auto=webp&s=da9c49fdfe21891047bac75a26000dc3eef237e0) - Mishima_408
@@ -14715,6 +14737,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/SGb93w4.jpg) - palkiia
  
 -  [**Ranulf (Halloween)**](https://preview.redd.it/4y0mk5xsb56g1.jpeg?width=1206&format=pjpg&auto=webp&s=7c796e2fd7f04c2bcaca78b915780ffe6a453be8) - actredal
+
+      -  [**2**](https://i.imgur.com/58Gg6T5.jpeg) - Tough_Cauliflower_46
  
 -  [**Ratatoskr**](https://preview.redd.it/shz9bt1fq7me1.png?width=828&format=png&auto=webp&s=d0ff49c78721ae5b101da501f2e3ffd8f94ecf9a) - Mentalious
 
@@ -16028,7 +16052,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
 -  [**Saber (Jehanna)**](https://i.imgur.com/89XnlF3.jpeg) - Charged_Blade
 
-     - [**2**](https://i.imgur.com/hBmc505.jpeg) - Tough_Cauliflower_46
+     - [**2**](https://i.imgur.com/e1VAQmq.jpeg) - Tough_Cauliflower_46
  
      - [**3**](https://preview.redd.it/8byltt6hahqf1.png?width=1080&format=png&auto=webp&s=cb50bdcf3ff6c4e93ef4ffef359fa9cdca1cd18d) - spitfyre
 
@@ -16267,6 +16291,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Seidr**](https://i.imgur.com/vLuj5Kb.jpg) - ShadowMLuigi
 
       -  [**2**](https://i.postimg.cc/25t5pwGd/IMG-5818.jpg) - go4ino
+ 
+      -  [**3**](https://preview.redd.it/9ofz9z6f23bg1.jpeg?width=1170&format=pjpg&auto=webp&s=0c51775a5205aa224332584c0ca587f1d9ad3dcf) - VenialAJ144
  
 -  [**Seidr + Heidr (New Year's)**](https://i.imgur.com/FOqo7Ve.jpeg) - FellMarie
 
@@ -17133,6 +17159,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Sigurd (Emblem)**](https://i.ibb.co/JHp1gkh/IMG-20241001-194716.png) - ukantor
 
       -  [**2**](https://i.imgur.com/cyQFf3j.jpeg) - SolokOriginel
+ 
+-  [**Skrimir (Halloween)**](https://preview.redd.it/azn1xou233bg1.png?width=1320&format=png&auto=webp&s=29643f5884084c3d344a7d32c19563a0d4b402c3) - Severin_777
 
 -  [**Silas**](https://imgur.com/mWreZ7C) - Megatempo
 
@@ -17941,6 +17969,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/xFvympI.jpg) - Slurpuffilicious
  
       -  [**4**](http://puu.sh/KB47f/0ee9e166b8.jpg) - Paiguy7
+ 
+      -  [**5**](https://i.imgur.com/iLQvaWM.jpeg) - Tough_Cauliflower_46
       
 -  [**Sylvain (Summer)**](https://i.imgur.com/Q1qA9uC.jpg) - kieku1
 
@@ -18497,6 +18527,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/I7W9tLB.png) - kris12k4
  
 -  [**Tharja (Ninja)**](https://imgur.com/gallery/HgFYGo6) - BlackStar300
+
+-  [**Tharja (Attuned)**](https://preview.redd.it/xcz14hff43bg1.png?width=1320&format=png&auto=webp&s=d33174fa80d019b76f1a26ed2790d387c2736a6e) - Severin_777
 
 -  [**Thea**](https://i.imgur.com/6LpWk5n.png) - clavatt
 
@@ -19183,6 +19215,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/gcg6NNN.png) - SuperSnivMatt
 
       -  [**7**](https://i.imgur.com/puiKmNK.png) - Saints_Space
+ 
+      -  [**8**](https://preview.redd.it/dk6nmabp03bg1.jpeg?width=1080&format=pjpg&auto=webp&s=e4e93385dcf0f574c8fbb48705b5c6d47bae5a4c) - ShapeForest
 
 -  [**Vanessa**](https://i.imgur.com/4EyaraH.jpg) - kieku1
 
