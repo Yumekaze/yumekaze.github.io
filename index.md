@@ -4953,6 +4953,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
  
       -  [**11**](https://i.imgur.com/BSzTLJO.jpeg) - BlueBlaze16
  
+      -  [**12**](https://preview.redd.it/s4yvcnamb2tg1.png?width=1080&format=png&auto=webp&s=727f212e426e8e86c27267c866cfcee44f23dbcd) - No-Cry3031
+ 
 -  [**Eikthyrnir**](https://imgur.com/a/X9uxK1B) - puku-muku
 
      -  [**2**](https://i.imgur.com/yaDkxcQ.jpeg) - StormAurora
@@ -6864,10 +6866,14 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**10**](https://i.imgur.com/HcBrB4S.jpg) - Moosewheat
  
       -  [**11**](https://preview.redd.it/rq6swncwc8me1.jpeg?width=1179&format=pjpg&auto=webp&s=a7a471799ac18ce90af0ffbe4354d0211a97280f) - Sceptile_Forest
+ 
+      -  [**12**](https://i.imgur.com/Ys6P9tm.jpeg) - ShockNote
 
 -  [**Gaius (Summer)**](https://i.imgur.com/k8wfVxT.jpg) - Antartix 
 
       -  [**2**](https://i.imgur.com/VECndKU.jpg) - SyrupnBeavers
+ 
+      -  [**3**](https://i.imgur.com/2cqYfhQ.jpeg) - ShockNote
 
 -  [**Galle**](https://i.imgur.com/jBOOLLC.jpeg) - jlaweez
 
@@ -9174,6 +9180,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 -  [**Keaton**](https://i.imgur.com/xUTq09T.png) - Kaleochu
 
       -  [**2**](https://i.imgur.com/lgXvO3G.jpg) - Psistriker94
+ 
+      -  [**3**](https://i.imgur.com/FV1NQys.jpeg) - ShockNote
 
 -  [**Keaton (New Year's)**](https://i.imgur.com/929zbUf.jpg) - SiilentCry
 
@@ -14481,6 +14489,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**6**](https://i.imgur.com/T4F56C5.png) - mindthetimes
  
       -  [**7**](https://preview.redd.it/4eg3gsfbdame1.jpeg?width=1125&format=pjpg&auto=webp&s=16b765f7640cb34306ed3edaa7bd004629638c44) - dangeruwus
+ 
+      -  [**8**](https://i.imgur.com/cw3wyVL.jpeg) - ShockNote
 
 -  [**Owain (Valentine's)**](https://i.imgur.com/B8ASXJh.png) - mindthetimes
 
@@ -14637,12 +14647,16 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**14**](https://i.imgur.com/iI96WkB.jpg) - ProfTurquoise
  
       -  [**15**](https://i.imgur.com/0N5UPcR.jpg) - Sprocket3
+ 
+      -  [**16**](https://i.imgur.com/LlTlrFA.jpeg) - Timpaniixoxo
 
 -  [**Panne (New Year's)**](https://i.imgur.com/459hGND.jpg) - RestlessRoman
 
       -  [**2**](https://i.imgur.com/AYS8TsN.jpg) - CoeurElectrik
  
       -  [**3**](https://i.imgur.com/S0VN2Lg.png) - kuuderederedere
+ 
+      -  [**4**](https://i.imgur.com/cx8aTyo.jpeg) - Timpaniixoxo
  
 -  [**Patty**](https://i.imgur.com/2gUNDKm.png) - BlazeBloom
 
@@ -17695,6 +17709,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**80**](https://i.imgur.com/20XdzO2.png) - NohrianScumbag
  
       -  [**81**](https://i.imgur.com/vylPzmk.jpg) - CzarKhasm
+ 
+      -  [**82**](https://i.imgur.com/kXOag1Q.jpeg) - Timpaniixoxo
 
 -  [**Solon**](https://i.imgur.com/AIhsbWI.png) - BlackStar300
 
@@ -19841,10 +19857,12 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**2**](https://i.imgur.com/1128Q47.jpg) - Rabbytt
 
       -  [**3**](https://i.imgur.com/WXXnjJh.jpg) - CoeurElectrik
+ 
+      -  [**4**](https://i.imgur.com/iFghAkF.jpeg) - Timpaniixoxo
 
 -  [**Yarne (New Year's)**](https://i.imgur.com/3kdV6fU.jpg) - CoeurElectrik
 
--  [**Yarne (Halloween)**](https://preview.redd.it/zrbx5que27be1.jpeg?width=1080&format=pjpg&auto=webp&s=8d5f6e23c1e12dac69b7146a83fc73cd2db631a9) - BooIsAlive
+-  [**Yarne (Halloween)**](https://i.imgur.com/Mblg6Ew.jpeg) - Timpaniixoxo
 
      -  [**2**](https://i.imgur.com/JbsVDBw.jpeg) - jumpyjoong
 
