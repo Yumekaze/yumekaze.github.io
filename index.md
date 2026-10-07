@@ -1990,6 +1990,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**3**](https://i.imgur.com/0ZzOdpf.jpg) - Phaaze13
  
       -  [**4**](https://imgur.com/a/Yo7ymCk) - Aetherryn
+ 
+-  [**Cai**](https://preview.redd.it/t6gw1zp01doh1.jpeg?width=471&format=pjpg&auto=webp&s=d1a0810412cbf82b772165fa96bff71528420138) - HeavenlySeraph
 
 -  [**Cain**](https://i.imgur.com/LEfn2Vs.png) - exxit5408 
 
@@ -6377,7 +6379,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**2**](https://i.imgur.com/Pzmp50G.jpeg) - actredal
  
-      -  [**3**](https://i.imgur.com/b6RHpsc.jpeg) - SolokOriginel
+      -  [**3**](https://i.imgur.com/AK80Gsk.jpeg) - SolokOriginel
  
 -  [**Felix (Young)**](https://i.imgur.com/UjknDvV.jpeg) - BlazeBloom
 
@@ -11711,6 +11713,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**13**](https://i.imgur.com/qqcxJqy.png) - Darkion_Silver
  
       -  [**14**](https://i.imgur.com/9TrRirY.jpg) - DucklingCore
+ 
+      -  [**15**](https://preview.redd.it/ucn1irvv3jph1.jpeg?width=1179&format=pjpg&auto=webp&s=ee850b3d10c676cc5218608ac9dd3277dacfd571) - Besteal
 
 -  [**Marcia**](https://i.imgur.com/PMMFlnx.png) - Illumina25
 
@@ -11792,7 +11796,7 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
 
       -  [**6**](https://i.imgur.com/hkMG9mq.png) - Caelholdt
  
--  [**Marianne (Rearmed)**](https://i.imgur.com/hN8S3QT.jpeg) - SolokOriginel
+-  [**Marianne (Rearmed)**](https://i.imgur.com/nYpkQuu.jpeg) - SolokOriginel
 
 -  [**Maribelle**](https://i.imgur.com/tNJ0PaU.jpg) - MDonkay
 
@@ -18491,6 +18495,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/M1nfdCI.jpg) - Psistriker94
 
       -  [**25**](https://i.imgur.com/OU59LKp.png) - NightmareShane
+ 
+-  [**Sylvain (Brave)**](https://i.imgur.com/6rli9VA.jpeg) - SolokOriginel
 
 -  [**Syrene**](https://i.imgur.com/QMbBvz9.png) - Cannedcabbage
 
@@ -19053,6 +19059,8 @@ If you have any questions, you can [contact the r/FireEmblemHeroes mod team](htt
       -  [**24**](https://i.imgur.com/bEZ6iZ2.jpg) - Totsutei
  
 -  [**Thea (Ilian)**](https://i.imgur.com/PkZiULh.jpeg) - Totsutei
+
+-  [**Theodora**](https://preview.redd.it/u59h8erx0doh1.jpeg?width=471&format=pjpg&auto=webp&s=7958752a4cdea7c6c948d90a658a1e8e6b88c68e) - HeavenlySeraph
 
 -  [**Thrasir**](https://i.imgur.com/mCRNkDz.png) - fjorm_book_ii
 
